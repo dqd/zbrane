@@ -1,0 +1,3 @@
+# Uzkon
+
+AS-40 až AS-46, ZK15, ZK18, TR-X, UNG-12, S12, BR99 / Barak, LA887, TR100, AS17.

@@ -1,0 +1,3 @@
+# HK G3 a klony
+
+HK91, HK33, CETME C, POF G3, HK SL7.

@@ -1,0 +1,1 @@
+# Ruger Precision Rifle
