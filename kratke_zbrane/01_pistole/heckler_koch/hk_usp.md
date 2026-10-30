@@ -1,3 +1,6 @@
 # HK USP a HK45
+pistole, samonabíjecí, da/sa, hk, německo, 9×19, .40 s&w, .45 acp, polymerový rám, služební, vojenská
 
-USP Compact, Match, Expert, Elite, Mark 23.
+USP (Universelle Selbstladepistole) je samonabíjecí pistole německé firmy Heckler & Koch představená v roce 1993. Vznikla nejprve v ráži .40 S&W s ohledem na americký trh, brzy následovaly verze v 9×19 a .45 ACP, později i .357 SIG. Pracuje na principu krátkého zákluzu se sklopnou hlavní Browningova typu uzamykanou v okně pro vyhazování nábojnic; vratná pružina je doplněna tlumičem zpětného rázu, který snižuje namáhání rámu. Rám je z polymeru s ocelovými vodítky, závěr je ocelový. Charakteristická je modularita spoušťového mechanismu: s vnějším kohoutem lze volit varianty DA/SA s pojistkou a vypínačem kohoutu, pouze s vypínačem, s pojistkou na levé či pravé straně, nebo pouze dvojčinnou. V ráži 9×19 pojme zásobník 15 nábojů, v .45 ACP 12 nábojů. USP Compact je zkrácená verze, USP Expert a Elite sportovní verze s prodlouženým závěrem a hlavní, USP Match sportovní provedení se závažím pod hlavní. Mark 23 je rozměrná pistole v .45 ACP vyvinutá pro americké velitelství speciálních operací (SOCOM), s hlavní upravenou pro tlumič a montáží zaměřovacího modulu. USP v 9×19 zavedl v roce 1994 Bundeswehr jako P8. HK45, vyvinutá kolem roku 2006 pro soutěž americké armády, je novější pistole v ráži .45 ACP se zásobníkem na 10 nábojů, s ergonomií převzatou z P30 a výměnnými hřbety; HK45C je její kompaktní verze.
+
+Oficiální stránky výrobce: https://www.heckler-koch.com

@@ -1,3 +1,6 @@
 # Taurus Millennium, G2c, G3 a G3C – vývojová řada
+pistole, samonabíjecí, striker, taurus, brazílie, 9×19, .40 s&w, .45 acp, polymerový rám, skryté nošení, sebeobrana
 
-PT 111 / PT 132 / PT 145 Millennium, Millennium Pro, Millennium G2, G2c, G3, G3C.
+Téma zahrnuje vývojovou řadu kompaktních pistolí brazilské firmy Taurus s polymerovým rámem a úderníkovým mechanismem (striker), od původních Millennium z konce 90. let po současné G3 a G3C. Všechny pracují s krátkým zákluzem hlavně a jejím sklápěním, mají ocelový závěr, pojistku ve spoušti a manuální pojistku na rámu. Původní Millennium se vyráběla v řadě ráží – PT 111 v 9×19, PT 132 v 7,65 Browning, PT 138 v .380 ACP, PT 140 v .40 S&W a PT 145 v .45 ACP – a měla spoušť DAO s dlouhým chodem; zásobník 9×19 byl v USA tehdejšími předpisy omezen na 10 nábojů. Millennium Pro přinesla přepracovaný rám, mířidla a spoušťový mechanismus. Starší řady Millennium byly v USA předmětem hromadné žaloby kvůli bezpečnosti, která skončila v roce 2015 vyrovnáním. Millennium G2 z roku 2013 má spoušť s krátkým chodem a možností opakovaného úderu (restrike), zásobník na 12 nábojů 9×19 a texturovaný úchop. Z ní odvozená G2c se stala jednou z nejprodávanějších levných pistolí pro skryté nošení v USA. G3 z roku 2019 je plnorozměrná pistole se zásobníkem na 17 nábojů 9×19 a vylepšenou spouští, G3C z následujícího roku je její kompaktní verze se zásobníkem na 12 nábojů, kompatibilním s G2c. Novější provedení se nabízejí i s přípravou pro kolimátor (T.O.R.O.).
+
+Oficiální stránky výrobce: https://www.taurususa.com

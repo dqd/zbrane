@@ -1,1 +1,6 @@
-# Taurus GX4 a GX2
+# Taurus GX4
+pistole, samonabíjecí, striker, taurus, brazílie, usa, 9×19, polymerový rám, mikrokompakt, skryté nošení, sebeobrana
+
+Taurus GX4 je kompaktní samonabíjecí pistole pro skryté nošení v ráži 9×19, kterou firma Taurus představila v roce 2021 a jejíž konstrukce vznikla v americké pobočce Taurus USA. Patří do třídy takzvaných mikrokompaktů, kterou odstartovala SIG P365: díky zásobníku s náboji uloženými přechodově ze dvou řad do jedné pojme 11 nábojů, prodloužený zásobník 13 nábojů, a přitom si zachovává rozměry pistolí s jednořadým zásobníkem. Pracuje s krátkým zákluzem hlavně a jejím sklápěním, má úderníkový mechanismus (striker) s pojistkou ve spoušti, polymerový rám s vloženou kovovou kostrou a ocelový závěr; manuální pojistka je jen u některých provedení. Úchop lze přizpůsobit výměnnými zadními díly. Řadu doplňují verze s přípravou pro kolimátor (T.O.R.O. – Taurus Optic Ready Option), GX4 XL s delším závěrem a hlavní pro lepší mířicí vzdálenost a GX4 Carry s delší rukojetí, která pojme větší zásobník a lépe se drží. Pistole se v USA etablovala jako cenově výrazně dostupnější alternativa k mikrokompaktům SIG P365, Springfield Hellcat nebo Smith & Wesson Shield Plus a je oceňována za dobrou spoušť a spolehlivost v poměru k ceně.
+
+Oficiální stránky výrobce: https://www.taurususa.com

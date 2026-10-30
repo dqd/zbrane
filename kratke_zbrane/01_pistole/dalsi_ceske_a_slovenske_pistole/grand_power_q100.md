@@ -1,0 +1,6 @@
+# Grand Power Q100
+pistole, samonabíjecí, striker, grand power, slovensko, 9×19, polymerový rám, služební, sebeobrana
+
+Grand Power Q100 je samonabíjecí pistole slovenské firmy Grand Power ze Slovenské Ľupče a zároveň první model této značky s úderníkovým (striker) spoušťovým mechanismem. Vznikla jako úderníková obdoba pistole K100 a podle výrobce byla určena hlavně pro ozbrojené složky a osobní obranu; ve Spojených státech se začala prodávat v roce 2017. Q100 přebírá od K100 princip uzamčení otočnou hlavní: hlaveň se při zákluzu pootáčí v ocelovém šasi a neklopí se, což omezuje zdvih zbraně a zlepšuje ovladatelnost při rychlé střelbě. Spoušťový mechanismus je pouze dvojčinný (DAO) úderníkový, s pojistkou úderníku a pojistkou ve spoušti; vnější kohout chybí, takže odpadá riziko jeho zablokování oděvem. Rám je z polymeru s ocelovým šasi obráběným na CNC strojích, závěr je ocelový. Pistole se dodává se čtyřmi výměnnými rukojeťovými díly různých velikostí. Vyrábí se v ráži 9×19, zásobník pojme 15 nábojů, hlaveň je dlouhá 108 mm. Pod hlavní je montážní lišta Picatinny. Oproti K100 má Q100 delší záměrnou vzdálenost. Rozborka je jednoduchá, pistole se rozkládá na rám, závěr a hlaveň s vratnou pružinou.
+
+Oficiální stránky výrobce: https://grandpower.eu

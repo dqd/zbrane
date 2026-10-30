@@ -1,1 +1,8 @@
-# ZKM 451, ZKM 452 a CZ 452 / 453 / 455 – opakovací malorážky Brno
+# ZKM 451, ZKM 452 (Brno Model 1 a 2) a CZ 452 / 453 / 455 – opakovací malorážky Brno
+malorážka, opakovací, zkm, cz, brno, česko, .22 lr, .22 wmr, .17 hmr, lovecká
+
+Opakovací malorážky řady ZKM vznikly v konstrukční kanceláři bratří Josefa a Františka Kouckých ve Zbrojovce Brno a patří k nejúspěšnějším českým civilním zbraním vůbec. Zkratka ZKM znamená Zbrojovka – Koucký – Malorážka a kořeny konstrukce sahají do let 1943–1944, kdy Koucký navrhl cvičnou malorážku pro wehrmacht. ZKM 451, na Západě prodávaný jako BRNO Mod. 1, se vyráběl od konce 40. let jako základní typ s tangentovým hledím, oblíbený zejména u myslivců; ZKM 452 (BRNO Mod. 2) jako jeho zjemněná verze od 50. let. Obě zbraně získaly pověst mimořádně přesných a trvanlivých malorážek a terčová verze ZKM 456 (BRNO Mod. 4) má vlastní téma. V roce 1964 byla výroba převedena do Uherského Brodu, kde zbraň pod označením ZKM 452 a později CZ 452 zůstala ve výrobě až do roku 2017, kdy výrobu uzavřela limitovaná série Grand Finale o 1 000 kusech.
+
+Konstrukce se po celou dobu nezměnila v podstatě: válcový odsuvný závěr s otočným uzamčením, ocelová hlaveň zašroubovaná do pouzdra, odnímatelný schránkový zásobník na 5 nábojů (volitelně 10, u .22 LR i 25) a dřevěná, později i syntetická pažba. CZ 452 se vyráběla v rážích .22 LR, .22 WMR, .17 HMR a .17 HM2 a v mnoha provedeních – Lux, Standard, Trainer, American, Varmint, FS s celopažbou, dětská Scout a další. CZ 453 je její vyšší verze s plně stavitelnou spouští s napínáčkem. CZ 455, uvedená na přelomu let 2009 a 2010, přinesla výměnné hlavně uchycené šrouby v pouzdře, takže jednu zbraň lze snadno přestavět na jinou ráži; v roce 2018 ji nahradila CZ 457.
+
+Oficiální stránky výrobce: https://www.czub.cz

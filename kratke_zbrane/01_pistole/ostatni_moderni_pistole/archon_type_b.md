@@ -1,1 +1,0 @@
-# Archon Type B

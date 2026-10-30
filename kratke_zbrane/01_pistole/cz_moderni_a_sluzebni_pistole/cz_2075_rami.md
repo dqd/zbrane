@@ -1,1 +1,6 @@
 # CZ 2075 RAMI
+pistole, samonabíjecí, da/sa, cz, česko, 9×19, .40 s&w, hliníkový rám, subkompakt, skryté nošení
+
+CZ 2075 RAMI je subkompaktní samonabíjecí pistole České zbrojovky Uherský Brod určená pro skryté nošení a jako záložní zbraň. Název odkazuje na jména konstruktérů Radka Hauerlanda a Milana Trkulji, číslo 2075 na příslušnost k rodině CZ 75. Pistole na trh přišla v polovině první dekády 21. století. Konstrukčně vychází z CZ 75: pracuje na principu krátkého zákluzu se sklopnou hlavní Browningova typu, závěr je veden uvnitř rámu a spoušťový mechanismus je DA/SA s vnějším kohoutem a automatickou pojistkou úderníku. Rám je vyroben z hliníkové slitiny, závěr a hlaveň z oceli, celá zbraň je výrazně zkrácená a odlehčená. Vyráběla se v rážích 9×19 a .40 S&W; zásobník pojme 10 nábojů 9×19, respektive 8 nábojů .40 S&W, k dispozici byl i prodloužený zásobník s vyšší kapacitou. Základní verze má manuální pojistku na rámu, varianta RAMI BD místo ní vypínač kohoutu. Existovala také verze RAMI P s rámem z polymeru. Díky kombinaci malých rozměrů, kovové konstrukce a spouště DA/SA byla RAMI oblíbená mezi příznivci skrytého nošení, v nabídce zbrojovky ji později nahradily novější kompaktní modely.
+
+Oficiální stránky výrobce: https://www.czub.cz

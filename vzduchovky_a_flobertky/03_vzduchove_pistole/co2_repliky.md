@@ -1,3 +1,6 @@
 # CO2 repliky pistolí
+vzduchová pistole, co2, replika, baikal, umarex, blow, rusko, německo, turecko, 4,5 mm, bb, rekreační
 
-Makarov MP-654K, Umarex Colt 1911, Blow H-01.
+Do tématu patří vzduchové pistole, které vzhledem, rozměry a často i ovládáním věrně napodobují skutečné palné zbraně a jsou poháněny oxidem uhličitým (CO2). Běžně se používá dvanáctigramová bombička, uložená v rukojeti nebo přímo v zásobníku; po stisku spouště úderník krátce otevře ventil a dávka plynu vystřelí ocelovou kuličku BB nebo olověnou diabolku ráže 4,5 mm. Repliky na kuličky mívají zásobník v rukojeti, diabolkové verze obvykle rotační zásobník. Dražší modely mají funkci blowback, kdy část plynu pohybuje závěrem a napodobuje zpětný ráz. Baikal MP-654K se vyrábí v Iževsku, tedy ve stejném závodě jako původní pistole Makarov, a z velké části používá skutečné ocelové díly Makarova upravené tak, aby zbraň nebylo možné přestavět na ostrou. Bombička CO2 i 13 kuliček BB jsou uloženy v zásobníku, spoušť je dvojčinná a zbraň nemá blowback. Umarex z Arnsbergu nabízí v licenci firmy Colt několik replik pistole M1911 na diabolky i kuličky, s kovovým tělem a v některých provedeních i s pohyblivým závěrem. Do diskuse o levných pistolích se často dostává i turecká Blow H-01, ta však není CO2 replikou – jde o jednorannou zlamovací vzduchovou pistoli s pružinovým pístem v ráži 4,5 mm, s tělem z lehké zinkové slitiny a plastovou rukojetí. Rozdíly mezi typy jsou tedy hlavně v pohonu, střelivu a věrnosti repliky.
+
+Oficiální stránky výrobce: Umarex – https://www.umarex.de

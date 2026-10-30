@@ -1,3 +1,6 @@
 # Ruger PC Carbine, LC Carbine a PC Charger
+karabina, samonabíjecí, ruger, usa, 9×19, .40 s&w, 5,7×28, .45 acp, sportovní
 
-Vč. PC9.
+Téma zahrnuje pistolové karabiny americké firmy Sturm, Ruger & Co. Ruger PC Carbine byla představena v roce 2017 a vyrábí se v rážích 9×19 a .40 S&W. Pracuje s neuzamčeným dynamickým závěrem, který je doplněn přídavným závažím pro snížení zpětného rázu, střílí z uzavřeného závěru a má hlaveň dlouhou 16,12 palce, obvykle se závitem. Hlaveň lze snadno sejmout pootočením (takedown), takže se karabina převáží rozložená ve dvou dílech. Pouzdro je z hliníkové slitiny, pažba polymerová, později i v podobě šasi s pistolovou rukojetí a předpažbím M-LOK. Výměnné šachty umožňují použít zásobníky Ruger (SR9, Security-9, American) i Glock. PC Charger je pistolová verze s krátkou hlavní (kolem 6,5 palce) a úchytem pro opěrku, mechanicky totožná s karabinou. Ruger LC Carbine (od roku 2022) je samostatná kompaktní konstrukce s nekonvenčním uspořádáním, kdy zásobník je zasunut v pistolové rukojeti, určená primárně pro náboj 5,7×28 a zásobníky pistole Ruger-57, později se objevila i verze v .45 ACP. Starší Ruger PC9 a PC4 (Police Carbine) se vyráběly přibližně v letech 1996–2006 v rážích 9×19 a .40 S&W; měly klasickou syntetickou pažbu, ocelové pouzdro a používaly zásobníky pistolí Ruger P-series. S dnešní PC Carbine je spojuje jen koncepce, nikoli konstrukce.
+
+Oficiální stránky výrobce: https://www.ruger.com

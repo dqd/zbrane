@@ -1,1 +1,6 @@
 # FN HiPer – nová služební pistole FN
+pistole, samonabíjecí, striker, fn, belgie, 9×19, polymerový rám, služební
+
+FN HiPer je služební samonabíjecí pistole belgické firmy FN Herstal z Lutychu, představená 31. května 2022 jako nová generace služebních pistolí FN; název odkazuje na legendární Hi-Power. Je určena výhradně pro ozbrojené a bezpečnostní složky, na civilní trh se nedodává. Jde o zcela novou konstrukci vyvinutou a vyráběnou v Belgii, takže nepodléhá americkým exportním předpisům ITAR. Pistole funguje na principu krátkého zákluzu hlavně, má úderníkový bicí mechanismus, polymerový rám a uvnitř tuhou kovovou vložku, která umožňuje přesnější vedení závěru a lepší utěsnění proti nečistotám. Je vyráběna v ráži 9×19 s hlavní délky přibližně 100 mm a zásobníkem na 15 nábojů, hmotnost s prázdným zásobníkem činí asi 730 g. Výrobce zdůrazňuje ergonomii: oboustranné ovladače zásobníku fungují nezávisle na sobě, záchyt závěru je posunut dozadu, zadní část závěru má rozšířenou plochu pro natahování a zásobník ukazuje počet zbývajících nábojů. Zbrojíř může nastavit odpor i chod spouště a pistoli lze rozebrat bez stisknutí spouště. Verze HiPer MRD má závěr připravený pro kolimátor.
+
+Oficiální stránky výrobce: https://www.fnherstal.com

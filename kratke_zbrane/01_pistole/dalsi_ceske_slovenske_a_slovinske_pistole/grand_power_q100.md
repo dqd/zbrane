@@ -1,1 +1,0 @@
-# Grand Power Q100

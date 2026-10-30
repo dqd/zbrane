@@ -1,3 +1,6 @@
 # Westernové repliky Uberti – Schofield, Remington 1875, Open Top a konverze
+revolver, sao, uberti, itálie, .45 colt, .44-40, .38 special, westernová, replika, cowboy action
 
-Schofield, Remington 1875 Outlaw, Open Top, konverze Navy / Army.
+Italská firma A. Uberti z Gardone Val Trompia (od roku 2000 součást skupiny Beretta) vyrábí vedle replik Colt SAA i řadu méně obvyklých westernových revolverů. Všechny jsou jednočinné, s ocelovým rámem (často kaleným do barevna) a šestiranným válcem, nabízejí se typicky v rážích .45 Colt, .44-40 a .38 Special (resp. .357 Magnum) a slouží hlavně pro westernovou střelbu a sběratelství. Schofield je replika vojenské verze lamací Smith & Wesson Model 3 z 70. let 19. století – rám se po uvolnění západky před kohoutem sklopí dopředu a hvězdicový vyhazovač vysune všechny nábojnice najednou, což umožňuje rychlé přebíjení. Remington 1875 (u Uberti též Outlaw) je revolver s pevným rámem a nabíjecími dvířky podobný Coltu SAA, odlišitelný charakteristickým trojúhelníkovým žebrem pod hlavní. Open Top je replika přechodného Coltu z let 1871–1872, který vycházel z perkusních revolverů – nemá horní můstek rámu a hlaveň je připevněna klínem k ose válce. Konverze 1851 Navy a 1860 Army napodobují dobové přestavby perkusních revolverů na jednotné kovové náboje: zachovávají tvar původní zbraně, ale mají válec pro náboje, nabíjecí dvířka a vyhazovač. Hlavní rozdíly jsou tedy v systému nabíjení (lamací Schofield vs. dvířka u ostatních) a v historickém vzhledu.
+
+Oficiální stránky výrobce: https://www.uberti.com

@@ -1,0 +1,6 @@
+# Grand Power P24
+pistole, samonabíjecí, striker, grand power, slovensko, 9×19, polymerový rám, služební, sebeobrana
+
+Grand Power P24 je samonabíjecí pistole slovenské firmy Grand Power ze Slovenské Ľupče, poprvé představená v březnu 2024 na veletrhu IWA v Norimberku. Jde o štíhlou pistoli služební velikosti určenou pro službu, sebeobranu, taktické použití i sportovní střelbu. Na rozdíl od ostatních pistolí Grand Power nepoužívá otočnou hlaveň, ale klasický princip krátkého zákluzu se sklopnou hlavní Browningova typu, jejíž nábojový prostor se uzamyká v okně pro vyhazování nábojnic. Spoušťový mechanismus je úderníkový (striker) s jednočinnou spouští o odporu přibližně 1,6 kg, pojistkami jsou pojistka v jazýčku spouště a automatická pojistka úderníku; pistole má viditelný i hmatatelný indikátor nábojnice v komoře a natažení úderníku. Rám je z vyztuženého polymeru se třemi výměnnými hřbety rukojeti, ovládání je plně oboustranné. Hlaveň je dlouhá zhruba 93 mm, hmotnost bez zásobníku se pohybuje kolem 480 g. Pistole používá zásobníky pistole Glock 17 a v základu pojme 17 nábojů 9×19. Závěr je připravený pro montáž kolimátoru a mířidla jsou dostatečně vysoká pro souběžné použití s kolimátorem. Sesterský model LP24 má prodloužený závěr s hlavní o délce 4,75 palce a stavitelná mířidla.
+
+Oficiální stránky výrobce: https://grandpower.eu

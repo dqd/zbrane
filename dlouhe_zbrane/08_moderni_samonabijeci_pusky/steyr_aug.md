@@ -1,3 +1,6 @@
 # Steyr AUG
+puška, samonabíjecí, útočná puška, bullpup, steyr, rakousko, 5,56×45, 9×19, vojenská, sportovní
 
-AUG Z, AUG A3 a další verze.
+Steyr AUG (Armee-Universal-Gewehr) je rakouská útočná puška v uspořádání bullpup, kterou vyvinula firma Steyr-Daimler-Puch a která byla v roce 1977 zavedena do výzbroje rakouské armády pod označením StG 77. Patřila k prvním sériově vyráběným bullpupům a k prvním puškám s rozsáhlým použitím polymerů. Pracuje na principu odběru plynů s krátkým chodem pístu, otočný závěr se uzamyká v ocelovém prodloužení hlavně. Hlaveň lze rychle vyměnit, směr vyhazování nábojnic přestavit na levou stranu výměnou závěru a krytu výhozného okénka. Původní verze A1 má integrovaný optický zaměřovač Swarovski se zvětšením 1,5×, verze A2 snímatelné držadlo s montáží a A3 lišty Picatinny. Průsvitné polymerové zásobníky pojmou 30 nebo 42 nábojů 5,56×45 NATO, verze NATO používá zásobníky STANAG; existují i konverze a verze v ráži 9×19 s vlastními zásobníky. Spoušť je dvoustupňová – lehký stisk znamená jednotlivou ránu, plné domáčknutí dávku. AUG Z (Z jako Zivil) je civilní samonabíjecí verze, kterou dnes vyrábí firma Steyr Arms; vyrábí se ve více provedeních a délkách hlavně. AUG používá rakouská armáda a ozbrojené síly či policie řady dalších zemí, mj. Austrálie (jako F88 vyráběná v Lithgow), Nového Zélandu, Irska, Malajsie a Saúdské Arábie. Jednotlivé verze se tedy liší hlavně zaměřovačem a montážemi (A1 až A3), zásobníky (Steyr vs. STANAG) a civilním či vojenským provedením spouště.
+
+Oficiální stránky výrobce: https://www.steyr-arms.com

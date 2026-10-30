@@ -1,3 +1,6 @@
 # SIG Sauer P210
+pistole, samonabíjecí, sa, sig sauer, švýcarsko, 9×19, ocelový rám, vojenská, sportovní, sběratelská
 
-Vč. P210 Legend a Target.
+SIG P210 je švýcarská samonabíjecí pistole, považovaná za jednu z nejpřesnějších sériových služebních pistolí vůbec. Vyvinula ji firma Schweizerische Industrie-Gesellschaft (SIG) v Neuhausenu am Rheinfall ve 40. letech s využitím patentů Charlese Pettera a vyráběla ji od roku 1949 až do první dekády 21. století. Pracuje s krátkým zákluzem hlavně a uzamčením Browningova typu, kdy ozuby hlavně zapadají do vybrání v závěru a odemčení řídí vačka pod nábojovou komorou. Charakteristickým rysem je závěr vedený po celé délce ve vnitřních drážkách rámu, který spolu s pečlivým lícováním zaručuje vynikající přesnost. Celoocelová zbraň má jednočinnou spoušť (SA) s vnějším kohoutem, manuální pojistku na levé straně rámu a jednořadý zásobník na 8 nábojů. Hlavní ráží je 9×19, vyráběla se také v ráži 7,65 Parabellum a existovaly výměnné sady pro .22 LR. Švýcarská armáda ji zavedla jako Pistole 49, dále ji používala dánská armáda a ve verzi P210-4 západoněmecká pohraniční stráž. Po ukončení švýcarské výroby navázala německá pobočka SIG Sauer v Eckernförde modelem P210 Legend a později americká SIG Sauer vlastní výrobou P210 v několika provedeních. Verze Target jsou sportovní provedení s nastavitelnými mířidly a vyladěnou spouští. Původní švýcarské kusy, zejména ve vojenském provedení, jsou dnes vyhledávané sběratelské zbraně.
+
+Oficiální stránky výrobce: https://www.sigsauer.com

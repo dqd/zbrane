@@ -1,3 +1,6 @@
 # Glock 17 a Glock 22
+pistole, samonabíjecí, striker, glock, rakousko, 9×19, .40 s&w, polymerový rám, služební, sportovní
 
-Full-size, vč. Glock 17L a 17C.
+Glock 17 je samonabíjecí pistole rakouské firmy Glock z Deutsch-Wagramu, kterou zkonstruoval Gaston Glock na začátku 80. let pro rakouskou armádu; ta ji v roce 1982 zavedla pod označením Pistole 80. Pracuje na principu krátkého zákluzu s uzamčením Browningova typu – hlaveň se sklápí a uzamyká hranatým nábojovým prostorem v okně pro vyhazování nábojnic. Rám je z polymeru s ocelovými vodítky, závěr z oceli s odolnou nitridovanou úpravou. Úderníkový spoušťový mechanismus Safe Action je částečně předepnutý a má tři automatické pojistky: v jazýčku spouště, pojistku úderníku a pojistku proti pádu; manuální pojistka chybí. Glock 17 v ráži 9×19 má zásobník na 17 nábojů a vyráběl se v několika generacích (Gen1 až Gen5 a novějších), které se liší úpravou rukojeti, výměnnými hřbety a dalšími detaily. Patří k nejrozšířenějším služebním pistolím na světě – používá ho rakouská armáda, britské ozbrojené síly a velké množství policejních sborů a speciálních jednotek. Glock 17L je sportovní verze s prodlouženým závěrem a hlavní, Glock 17C má v hlavni a závěru kompenzační otvory snižující zdvih zbraně. Glock 22 se od „sedmnáctky“ liší především ráží .40 S&W, mírně širším závěrem a kapacitou 15 nábojů; byl velmi rozšířen u amerických policejních sborů v době obliby náboje .40 S&W.
+
+Oficiální stránky výrobce: https://www.glock.com

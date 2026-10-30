@@ -1,3 +1,6 @@
 # CZ Scorpion EVO 3
+samopal, karabina, samonabíjecí, cz, česko, 9×19, .22 lr, polymer, služební, sportovní
 
-A1, S1, Carbine, verze v .22 LR.
+CZ Scorpion EVO 3 je samopal a z něj odvozené samonabíjecí zbraně České zbrojovky Uherský Brod, vyráběné od roku 2009. S původním Škorpionem vz. 61 má společný jen název. Zbraň pracuje na principu neuzamčeného dynamického závěru a střílí z uzavřeného závěru. Pouzdro i většina dílů jsou z polymeru vyztuženého skelnými vlákny, hlaveň je ocelová, horní část nese lištu Picatinny. Ovládací prvky jsou oboustranné, natahovací páku lze přestavit na obě strany a pažba je sklopná a nastavitelná. Ráže je 9×19, zásobníky jsou průsvitné polymerové, nejčastěji na 20 nebo 30 nábojů. Verze A1 je samopal s režimem střelby jednotlivými ranami i dávkou, určený pro armádu a policii; v ČR jej používá Armáda ČR i Policie ČR a řada dalších bezpečnostních složek v zahraničí. Civilní S1 je samonabíjecí provedení s krátkou hlavní (kolem 196 mm), Carbine je samonabíjecí karabina s hlavní 16 palců (406 mm), obvykle s prodloužením předpažbí nebo tlumičem plamene. Od roku 2023 se vyrábí i Scorpion EVO 3 S1 v ráži .22 LR s dynamickým závěrem a desetiranovým zásobníkem, s kratší i 16palcovou hlavní, který slouží jako levnější cvičná varianta se stejným ovládáním a kompatibilitou s většinou doplňků. Modernizovaná řada nese označení Scorpion 3+.
+
+Oficiální stránky výrobce: https://www.czub.cz

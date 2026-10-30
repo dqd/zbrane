@@ -1,1 +1,6 @@
 # Glock 26, 27, 33 a 39 – „Baby Glock“
+pistole, samonabíjecí, striker, glock, rakousko, 9×19, .40 s&w, .357 sig, polymerový rám, subkompakt, skryté nošení
+
+Téma zahrnuje subkompaktní pistole rakouské firmy Glock, přezdívané „Baby Glock“, určené pro skryté nošení a jako záložní zbraně policistů. Konstrukce odpovídá větším modelům: krátký zákluz se sklopnou hlavní Browningova typu uzamykanou v okně pro vyhazování nábojnic, rám z polymeru, ocelový závěr a úderníkový spoušťový mechanismus Safe Action se třemi automatickými pojistkami bez manuální pojistky. Rukojeť je výrazně zkrácená, takže se na ni vejdou jen dva prsty, ale zásobník zůstává dvouřadý. Glock 26, uvedený v polovině 90. let, je určen pro náboj 9×19 a pojme 10 nábojů. Glock 27 je jeho verze v ráži .40 S&W se zásobníkem na 9 nábojů, Glock 33 v ráži .357 SIG rovněž s 9 náboji. Glock 39 je určen pro náboj .45 GAP, který Glock vyvinul jako kratší alternativu k .45 ACP, a pojme 6 nábojů; s ústupem ráže .45 GAP z trhu je dnes spíše raritou. Výhodou subkompaktních Glocků je možnost používat delší zásobníky větších modelů stejné ráže – například do Glocku 26 lze vložit zásobníky z G19 nebo G17 – a s prodlužovacími návleky zásobníku tak lze rukojeť přizpůsobit. Oproti jednořadým modelům řady Slimline jsou širší, ale nabízejí vyšší kapacitu.
+
+Oficiální stránky výrobce: https://www.glock.com

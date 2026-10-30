@@ -1,3 +1,6 @@
 # Ruské malorážky TOZ-8, TOZ-17, TOZ-18 a TOZ-78
+malorážka, jednoranná, opakovací, samonabíjecí, toz, baikal, rusko, sssr, .22 lr, výcviková
 
-Vč. Baikal MP-161K.
+Malorážky z Tulského zbrojního závodu (TOZ) patřily v Sovětském svazu k nejrozšířenějším civilním a výcvikovým zbraním a v různých modernizacích se vyráběly po desítky let. Všechny mají válcový odsuvný závěr s otočným uzamčením, ocelovou hlaveň a dřevěnou pažbu a jsou určeny pro náboj .22 LR.
+
+TOZ-8, uvedená ve 30. letech, je jednoranná malorážka používaná masově k branné výchově, ve střeleckých kroužcích a k základnímu výcviku; vyráběla se i v modernizované verzi TOZ-8M. TOZ-17 je opakovací lovecká malorážka se schránkovým zásobníkem na 5 nábojů, z níž vychází zdokonalená TOZ-18 s lepšími mířidly a úpravami pažby. TOZ-78 je pozdější lovecká opakovací malorážka se zásobníkem na 5 nebo 10 nábojů, vyráběná v několika provedeních včetně verzí s lištou pro optiku. Baikal MP-161K z Iževska je naproti tomu moderní samonabíjecí malorážka s polymerovou pažbou a odnímatelným schránkovým zásobníkem, nabízená v rážích .22 LR, .22 WMR a .17 HMR; vyrábí ji koncern Kalašnikov. Zbraně TOZ jsou ceněny pro jednoduchost a přesnost, zpracování je však spíše hrubší.

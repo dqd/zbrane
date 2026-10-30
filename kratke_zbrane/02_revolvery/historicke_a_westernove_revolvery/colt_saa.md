@@ -1,3 +1,6 @@
 # Colt SAA 1873 a repliky
+revolver, sao, pevný rám, colt, uberti, pietta, usa, itálie, .45 colt, .357 magnum, westernová, replika
 
-Uberti Cattleman, Pietta.
+Colt Single Action Army (SAA, přezdívaný „Peacemaker“) je jednočinný revolver s pevným rámem, který americká armáda přijala v roce 1873. Válec pro šest nábojů se nabíjí jednotlivě přes boční dvířka za válcem a nábojnice se vyhazují tyčovým vyhazovačem pod hlavní; kohout se před každým výstřelem natahuje ručně. Původní armádní ráží byl .45 Colt, civilní verze se vyráběly v řadě dalších ráží (např. .44-40, .38-40, .32-20, později i .357 Magnum), nejčastěji s hlavněmi 4¾, 5½ a 7½ palce. Colt vyráběl SAA v Hartfordu v první generaci v letech 1873–1941 (přibližně 357 tisíc kusů), druhá generace následovala v letech 1956–1974 a třetí od roku 1976. SAA používala americká armáda až do přelomu 19. a 20. století a revolver se stal symbolem Divokého západu. Dnes je nejrozšířenější cestou k této zbrani řada italských replik: Uberti Cattleman z Gardone Val Trompia (dnes součást skupiny Beretta) a revolvery 1873 firmy Pietta. Repliky mají ocelový rám s kalením do barevna nebo leštěný, rukojeťový rám ocelový či mosazný a vyrábějí se v rážích jako .45 Colt, .357 Magnum, .44-40 a .22 LR; jsou oblíbené zejména pro westernovou střelbu (Cowboy Action Shooting). Od originálů se liší hlavně moderními materiály, provedením pojistných prvků u některých verzí a cenou.
+
+Oficiální stránky výrobců: Colt – https://www.colt.com, Uberti – https://www.uberti.com, Pietta – https://www.pietta.it

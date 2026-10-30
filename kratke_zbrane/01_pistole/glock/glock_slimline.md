@@ -1,1 +1,6 @@
 # Glock 42, 43 a 48 – řada Slimline
+pistole, samonabíjecí, striker, glock, rakousko, 9×19, .380 acp, polymerový rám, skryté nošení, sebeobrana
+
+Řada Slimline zahrnuje štíhlé pistole rakouské firmy Glock určené pro skryté nošení a osobní obranu. Stejně jako ostatní Glocky pracují na principu krátkého zákluzu s uzamčením Browningova typu (sklopná hlaveň se uzamyká v okně pro vyhazování nábojnic), mají rám z polymeru, ocelový závěr s odolnou povrchovou úpravou a úderníkový spoušťový mechanismus Safe Action se třemi automatickými pojistkami – pojistkou v jazýčku spouště, pojistkou úderníku a pojistkou proti pádu – bez manuální pojistky. Glock 42 z roku 2014 je nejmenší pistolí značky, určenou pro náboj 9 mm Browning krátký (.380 ACP), s jednořadým zásobníkem na 6 nábojů. Glock 43, uvedený v roce 2015, je o něco větší verze v ráži 9×19 rovněž s jednořadým zásobníkem na 6 nábojů a rychle se stal jednou z nejoblíbenějších pistolí pro skryté nošení. V roce 2019 přibyly modely Glock 43X a Glock 48 se širší rukojetí pro zásobník na 10 nábojů 9×19, který je stále výrazně užší než dvouřadé zásobníky ostatních Glocků. Glock 43X má krátký závěr modelu 43, Glock 48 delší závěr a hlaveň zhruba v délce Glocku 19. Varianty MOS mají závěr připravený pro kolimátor a novější provedení i montážní lištu pod hlavní.
+
+Oficiální stránky výrobce: https://www.glock.com

@@ -1,1 +1,6 @@
 # IWI Masada a Masada Slim
+pistole, samonabíjecí, striker, iwi, izrael, 9×19, polymerový rám, služební, sebeobrana, skryté nošení
+
+IWI Masada je samonabíjecí pistole s úderníkovým bicím mechanismem izraelské firmy Israel Weapon Industries (IWI), uvedená na trh v roce 2017; na americký trh ji dodává pobočka IWI US. Funguje na principu krátkého zákluzu s uzamčením výkyvnou hlavní, má polymerový rám, ocelový závěr a vyjímatelný sériovaný ocelový modul spoušťového mechanismu, který je z právního hlediska vlastní zbraní a umožňuje výměnu rámu. Plnorozměrová Masada je v ráži 9×19 se zásobníkem na 17 nábojů, má výměnné hřbety a boky rukojeti a závěr připravený pro kolimátor s několika adaptérovými destičkami; existuje i verze Masada Tactical. Masada Slim, představená zhruba v roce 2022, není jen zmenšenou Masadou, ale samostatně navrženou plochou pistolí pro skryté nošení: má hlaveň délky 3,4″, zásobník na 13 nábojů (případně 10), závěr frézovaný přímo pro kolimátory s upevněním typu RMS Shield a hmotnost kolem 580 g bez zásobníku. Obě pistole nabízejí na svou cenovou kategorii dobrou výbavu a jsou určeny jak pro služební použití, tak pro civilní sebeobranu.
+
+Oficiální stránky výrobce: IWI – https://www.iwi.net, IWI US – https://iwi.us

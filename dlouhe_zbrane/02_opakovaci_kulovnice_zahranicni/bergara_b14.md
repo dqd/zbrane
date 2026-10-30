@@ -1,1 +1,6 @@
 # Bergara B14 HMR
+kulovnice, opakovací, bergara, španělsko, 6,5 creedmoor, .308 win, .300 win mag, sportovní, lovecká, long range
+
+Bergara B14 HMR (Hunting & Match Rifle) je opakovací kulovnice španělské firmy Bergara z baskického městečka stejného jména, známé především výrobou hlavní. Model B14 se objevil v polovině 2010s a verze HMR, zaměřená na přesnou střelbu na delší vzdálenosti i na lov, patří k nejoblíbenějším cenově dostupným „precizním“ puškám. Systém B14 je klasický válcový odsuvný závěr se dvěma předními uzamykacími ozuby a tlačným podáváním, rozměrově kompatibilní se systémem Remington 700, takže lze použít široce dostupné montáže a příslušenství. Spoušť je seřiditelná, hlaveň z chrom-molybdenové oceli je volně uložená a obvykle má závit pro tlumič či brzdu. Polymerová pažba má vnitřní lůžko z hliníkové slitiny (mini-chassis), nastavitelnou lícnici i délku pažby a pistolovou rukojeť. Zásobování zajišťuje odnímatelný dvouřadý zásobník kompatibilní se standardem AICS, obvykle na 5 nábojů (u magnumových ráží méně). Vyrábí se mj. v rážích .22-250 Rem, 6 mm Creedmoor, 6,5 Creedmoor, 6,5 PRC, .308 Win a .300 Win Mag. Ve stejné řadě existují i provedení HMR Pro s nerezovým systémem a další varianty B14 lišící se pažbou a hlavní.
+
+Oficiální stránky výrobce: https://www.bergara.online

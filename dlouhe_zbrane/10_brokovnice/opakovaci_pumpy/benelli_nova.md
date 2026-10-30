@@ -1,1 +1,0 @@
-# Benelli Nova a Supernova

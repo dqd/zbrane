@@ -1,1 +1,6 @@
 # SIG Sauer Mosquito, P322 a P226 Classic 22
+pistole, samonabíjecí, dynamický závěr, sig sauer, německo, usa, .22 lr, polymerový rám, výcviková, rekreační
+
+Téma zahrnuje malorážkové pistole značky SIG Sauer, všechny s neuzamčeným dynamickým závěrem a pevnou hlavní v ráži .22 LR. SIG Mosquito je zmenšená (asi o desetinu) malorážková napodobenina služební pistole P226, vyráběná v Německu zhruba v letech 2003–2013. Má polymerový rám, závěr ze zinko-hliníkové slitiny, dvojčinnou spoušť (DA/SA) a zásobník pro 10 nábojů; je levná a lehká, ale proslula vybíravostí na střelivo. P226 Classic 22 je malorážková pistole v plné velikosti a s ovládáním P226 (DA/SA, vybíjecí páka), využívající závěr z hliníkové slitiny podobný tovární konverzní sadě .22 LR pro P226; hodí se proto k výcviku majitelů velkorážové P226. SIG Sauer P322 je moderní pistole americké pobočky SIG Sauer, uvedená v roce 2020, s polymerovým rámem, jednočinnou spouští, závěrem připraveným pro montáž kolimátoru, závitovou hlavní a zásobníkem pro 20 nábojů. Hlavní rozdíly: Mosquito a Classic 22 napodobují P226 (menší, resp. plnorozměrová), P322 je samostatná konstrukce s vysokou kapacitou a jednočinnou spouští.
+
+Oficiální stránky výrobce: https://www.sigsauer.com

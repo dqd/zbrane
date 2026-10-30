@@ -1,1 +1,6 @@
 # Kel-Tec SUB-2000
+karabina, samonabíjecí, kel-tec, usa, 9×19, .40 s&w, skládací, polymer, sebeobrana
+
+Kel-Tec SUB-2000 je lehká samonabíjecí pistolová karabina americké firmy Kel-Tec z Cocoa na Floridě, vyráběná od počátku 21. století jako nástupce staršího modelu SUB-9. Jejím hlavním znakem je možnost sklopit hlaveň s předpažbím nahoru a dozadu přes pažbu, čímž se délka zbraně zhruba zpoloviční a karabina se vejde do malého batohu nebo brašny. Pracuje na principu neuzamčeného dynamického závěru, závěr je uložen v trubkovém pouzdru, které zároveň tvoří pažbu, a natahuje se pákou pod pažbou. Tělo a pažba jsou z polymeru, hlaveň a závěr z oceli. SUB-2000 se vyrábí v rážích 9×19 a .40 S&W a v několika provedeních pro zásobníky rozšířených pistolí, především Glock, dále S&W M&P, Beretta 92/96 či SIG; typ zásobníku je dán konkrétním provedením zbraně. Délka hlavně je kolem 16 palců (406 mm). První generace měla jednodušší polymerové tělo a mířidla, druhá generace z roku 2015 přinesla přepracované tělo, vylepšenou spoušť a mířidla a lepší možnosti montáže lišt a optiky. Třetí generace z roku 2021 má mimo jiné předpažbí s otvory M-LOK, průběžnou horní lištu Picatinny a nastavitelnou pažbu. Karabina je oblíbená jako levná doplňková zbraň ke služební nebo civilní pistoli se stejnými zásobníky.
+
+Oficiální stránky výrobce: https://www.keltecweapons.com

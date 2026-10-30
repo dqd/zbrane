@@ -1,3 +1,4 @@
-# Hämmerli a High Standard Victor
+# Hämmerli 208, 215 a X-Esse
+pistole, samonabíjecí, dynamický závěr, hämmerli, švýcarsko, německo, .22 lr, .32 s&w wc, sportovní, terčová
 
-Hämmerli 208, 215, X-Esse; High Standard Victor.
+Téma zahrnuje špičkové sportovní malorážkové pistole švýcarské firmy Hämmerli z Lenzburgu, která patřila po desetiletí k nejvýznamnějším výrobcům sportovních zbraní na světě. Hämmerli 208 se vyráběla od roku 1966; jde o terčovou pistoli s neuzamčeným dynamickým závěrem a pevnou hlavní, vynikající přesností, jemně stavitelnou jednočinnou spouští a anatomickými střenkami, střílející náboje .22 LR ze zásobníku pro 8 nábojů. Byla určena pro disciplíny sportovní a standardní pistole na 25 m a dodnes je mezi střelci vyhledávaná jako mimořádně přesná zbraň. Poslední verzí byla 208S. Model 215 je technicky prakticky shodný, ale s jednodušší povrchovou úpravou a nižší cenou. X-Esse je modernější a výrobně jednodušší pistole vyráběná od přelomu tisíciletí, modulární konstrukce s výměnnými hlavněmi a rukojetěmi, v rážích .22 LR a .32 S&W Long Wadcutter. Po převzetí Hämmerli skupinou Umarex se od roku 2006 vyráběla u Walthera v Ulmu a v roce 2023 ji nahradila řada Walther CSP. Hlavní rozdíl je tedy mezi klasickými obráběnými 208/215 s výjimečnou pověstí a cenou na trhu s použitými zbraněmi a modulární, levnější X-Esse.
