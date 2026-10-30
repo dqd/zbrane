@@ -1,8 +1,0 @@
-# Další turecké brokovnice
-brokovnice, pumpová, samonabíjecí, kozlice, turecko, kirici, huglu, ata arms, 12/76, lovecká
-
-Téma zahrnuje brokovnice menších a středních tureckých výrobců, kteří nemají vlastní samostatné téma – například Kirici, Balikli, Torun, Mavoric, Axor Arms, ATA Arms, Huğlu, Kral Arms, Khan Arms, Armed Izmir, Zafer a GAO. Turecko se od 90. let stalo jedním z největších světových producentů brokovnic; výroba je soustředěna hlavně v okolí Konye a Beyşehiru, Istanbulu a Izmiru a velká část jde na export, často pod značkami zahraničních distributorů.
-
-Sortiment je u většiny firem podobný: pumpové a plynové samonabíjecí brokovnice s pouzdrem ze slitiny hliníku (často 7075), ocelovou hlavní (typicky 4140) s chromovaným vývrtem a výměnnými sbíhavostmi, kozlice a jednušky s ocelovým rámem a pažbami z tureckého ořechu či polymeru, a taktické zbraně se schránkovými zásobníky ve stylu AR-15 nebo AK. Kirici (KRC) vyrábí pumpy Horus a kozlice K15 v rážích 12 až .410, Balikli pumpovou řadu Stranger i kozlice, ATA Arms a Huğlu (družstvo z obce Huğlu v provincii Konya, mj. výrobce kozlic CZ-USA) se zaměřují na kvalitnější lovecké a sportovní kozlice a samonabíjecí brokovnice. Ostatní uvedení výrobci nabízejí především levnější pumpy a samonabíjecí zbraně. Kvalita se mezi výrobci i jednotlivými sériemi výrazně liší.
-
-Oficiální stránky výrobců: Kirici – https://www.kiricisilah.com, Balikli – https://balikliarms.com, Torun – https://www.torunarms.com, Axor Arms – https://axorarms.com, ATA Arms – https://www.ataarms.com, Huğlu – https://www.huglu.com.tr, Kral Arms – https://www.kralarms.com, Khan Arms – https://www.khanarms.com
