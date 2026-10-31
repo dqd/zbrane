@@ -5,6 +5,6 @@ Franchi SPAS-12 a SPAS-15 jsou bojové brokovnice italské firmy Franchi z Bresc
 
 SPAS-12 se vyráběl přibližně v letech 1979 až 2000, je ráže 12/70 a má trubicový zásobník pod hlavní na 7 nábojů (8 s nábojem v komoře podle verze). Pouzdro je ze slitiny lehkých kovů, hlaveň ocelová, předpažbí a rukojeť z plastu; pažba je pevná plastová nebo charakteristická sklopná kovová s háčkem, který lze zaklesnout za předloktí pro střelbu jednou rukou. Zbraň je robustní, ale těžká (kolem 4,4 kg) a proslavila se hlavně filmovou kariérou.
 
-SPAS-15, vyráběný od 80. let zhruba do roku 2005, má rovněž přepínání mezi poloautomatickým a pumpovým režimem, ale místo trubice používá vyměnitelný schránkový zásobník na 6 nábojů a ergonomii připomínající útočnou pušku, s nosným uchem a natahovací pákou nahoře. SPAS-15 byl zaveden u italských ozbrojených sil a policie, obě zbraně používaly v omezeném počtu i další bezpečnostní složky v Evropě i jinde.
+SPAS-15, vyráběný od 80. let zhruba do roku 2005, má rovněž přepínání mezi samonabíjecím a pumpovým režimem, ale místo trubice používá vyměnitelný schránkový zásobník na 6 nábojů a ergonomii připomínající útočnou pušku, s nosným uchem a natahovací pákou nahoře. SPAS-15 byl zaveden u italských ozbrojených sil a policie, obě zbraně používaly v omezeném počtu i další bezpečnostní složky v Evropě i jinde.
 
 Oficiální stránky výrobce: [www.franchi.com](https://www.franchi.com)
