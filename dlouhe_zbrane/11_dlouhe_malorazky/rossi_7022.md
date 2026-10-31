@@ -5,4 +5,4 @@ Rossi 7022 je samonabíjecí malorážka ráže .22 LR brazilské produkce, prod
 
 Malorážka pracuje na principu dynamického závěru, má ocelovou hlaveň, pouzdro s drážkami pro montáž optiky, otevřená mířidla a odnímatelný schránkový zásobník na 10 nábojů. Pažba je podle provedení dřevěná nebo syntetická. Z hlediska koncepce i ceny je 7022 alternativou k levným americkým samonabíjecím malorážkám typu Marlin 795 nebo Mossberg 702 Plinkster. Uživatelé oceňují nízkou cenu a jednoduchost, zpracování a spolehlivost se však u jednotlivých kusů a se střelivem různé kvality mohou lišit.
 
-Oficiální stránky výrobce: https://www.rossi.com.br
+Oficiální stránky výrobce: [www.rossi.com.br](https://www.rossi.com.br)

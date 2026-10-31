@@ -5,4 +5,4 @@ Opakovací malorážky řady ZKM vznikly v konstrukční kanceláři bratří Jo
 
 Konstrukce se po celou dobu nezměnila v podstatě: válcový odsuvný závěr s otočným uzamčením, ocelová hlaveň zašroubovaná do pouzdra, odnímatelný schránkový zásobník na 5 nábojů (volitelně 10, u .22 LR i 25) a dřevěná, později i syntetická pažba. CZ 452 se vyráběla v rážích .22 LR, .22 WMR, .17 HMR a .17 HM2 a v mnoha provedeních – Lux, Standard, Trainer, American, Varmint, FS s celopažbou, dětská Scout a další. CZ 453 je její vyšší verze s plně stavitelnou spouští s napínáčkem. CZ 455, uvedená na přelomu let 2009 a 2010, přinesla výměnné hlavně uchycené šrouby v pouzdře, takže jednu zbraň lze snadno přestavět na jinou ráži; v roce 2018 ji nahradila CZ 457.
 
-Oficiální stránky výrobce: https://www.czub.cz
+Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)

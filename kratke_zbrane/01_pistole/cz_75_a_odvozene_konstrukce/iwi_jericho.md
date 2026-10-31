@@ -1,6 +1,12 @@
 # IWI Jericho 941 / Jericho 45 (Baby Eagle)
 pistole, samonabíjecí, da/sa, iwi, izrael, 9×19, .40 s&w, .45 acp, ocelový rám, polymerový rám, služební
 
-Jericho 941 je izraelská samonabíjecí pistole, kterou od roku 1990 vyráběla státní firma Israel Military Industries (IMI), od roku 2005 její nástupce Israel Weapon Industries (IWI). Konstrukčně jde o odnož CZ 75 zprostředkovanou italskou firmou Tanfoglio, která se na vzniku zbraně podílela a v počátcích pro ni dodávala díly. Pistole pracuje na principu krátkého zákluzu se sklopnou hlavní Browningova typu, závěr je veden uvnitř rámu a spoušťový mechanismus je DA/SA s vnějším kohoutem. Označení 941 odkazuje na původní koncepci zbraně v ráži 9×19 s možností přestavby na .41 Action Express. Později se vyráběla v rážích 9×19 (zásobník kolem 16 nábojů), .40 S&W a .45 ACP; verze v .45 ACP se označuje Jericho 45. Existují provedení s ocelovým nebo polymerovým rámem a ve velikostech plné, středně kompaktní a kompaktní. Varianta F má pojistku na rámu podobně jako CZ 75, varianta R pojistku s funkcí vypínače kohoutu na závěru. Ve Spojených státech pistoli dlouho prodávala firma Magnum Research pod názvem Baby Eagle, který vizuálně navazoval na Desert Eagle; od roku 2014 ji tamní pobočka IWI US nabízí opět jako Jericho. Pistoli používá mimo jiné izraelská policie a další bezpečnostní složky v řadě zemí.
+Jericho 941 je izraelská samonabíjecí pistole, kterou od roku 1990 vyráběla státní firma Israel Military Industries (IMI), od roku 2005 její nástupce Israel Weapon Industries (IWI). Konstrukčně jde o odnož CZ 75 zprostředkovanou italskou firmou Tanfoglio, která se na vzniku zbraně podílela a v počátcích pro ni dodávala díly.
 
-Oficiální stránky výrobce: https://iwi.net
+Pistole pracuje na principu krátkého zákluzu se sklopnou hlavní Browningova typu, závěr je veden uvnitř rámu a spoušťový mechanismus je DA/SA s vnějším kohoutem. Označení 941 odkazuje na původní koncepci zbraně v ráži 9×19 s možností přestavby na .41 Action Express.
+
+Později se vyráběla v rážích 9×19 (zásobník kolem 16 nábojů), .40 S&W a .45 ACP; verze v .45 ACP se označuje Jericho 45. Existují provedení s ocelovým nebo polymerovým rámem a ve velikostech plné, středně kompaktní a kompaktní. Varianta F má pojistku na rámu podobně jako CZ 75, varianta R pojistku s funkcí vypínače kohoutu na závěru.
+
+Ve Spojených státech pistoli dlouho prodávala firma Magnum Research pod názvem Baby Eagle, který vizuálně navazoval na Desert Eagle; od roku 2014 ji tamní pobočka IWI US nabízí opět jako Jericho. Pistoli používá mimo jiné izraelská policie a další bezpečnostní složky v řadě zemí.
+
+Oficiální stránky výrobce: [iwi.net](https://iwi.net)

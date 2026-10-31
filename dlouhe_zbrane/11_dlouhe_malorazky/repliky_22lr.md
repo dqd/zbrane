@@ -5,4 +5,4 @@ Téma zahrnuje samonabíjecí malorážky v ráži .22 LR, které vzhledem napod
 
 Německá firma German Sport Guns (GSG) z Ense vyrábí GSG-5 ve tvaru MP5 (licenční verze se prodávala jako Walther/HK MP5 .22) a GSG StG 44, repliku německé útočné pušky. Walther UZI .22 a Beretta ARX160 .22 vyrábí skupina Walther/Umarex v licenci. PPS-50 italské firmy Pietta je replika sovětského samopalu PPŠ-41 s bubnovým zásobníkem na 50 nábojů. Kriss Vector .22 přenáší vzhled samopalu Kriss Vector, SIG 522 napodobuje švýcarskou pušku SIG 550 a rakouská ISSC MK22 vzhledem připomíná pušku FN SCAR. Kvalita a spolehlivost se mezi jednotlivými replikami liší a mnohé jsou citlivé na typ střeliva.
 
-Oficiální stránky výrobců: GSG – https://www.germansportguns.de, Walther – https://www.carl-walther.com, Pietta – https://www.pietta.it, Kriss – https://www.kriss-usa.com, SIG Sauer – https://www.sigsauer.com, ISSC – https://www.issc.at
+Oficiální stránky výrobců: [GSG](https://www.germansportguns.de), [Walther](https://www.carl-walther.com), [Pietta](https://www.pietta.it), [Kriss](https://www.kriss-usa.com), [SIG Sauer](https://www.sigsauer.com), [ISSC](https://www.issc.at)

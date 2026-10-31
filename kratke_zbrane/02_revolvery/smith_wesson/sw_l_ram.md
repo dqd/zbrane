@@ -1,6 +1,10 @@
 # S&W L-rám – Model 581, 586, 686 a 986
 revolver, da/sa, s&w, usa, .357 magnum, 9×19, ocelový rám, nerez, služební, sportovní
 
-L-rám je střední až velký rám dvojčinných revolverů Smith & Wesson, uvedený počátkem 80. let jako odolnější náhrada K-rámu pro trvalou střelbu náboji .357 Magnum. Oproti K-rámu má silnější horní můstek a okolí přechodového kužele, mohutnější válec a hlaveň s plnou spodní lištou, která zvyšuje hmotnost vpředu a tlumí zdvih zbraně. Rám je pevný, válec výklopný a spoušť DA/SA. Model 581 (Distinguished Service Magnum) je černěný ocelový revolver s pevnými mířidly, Model 586 (Distinguished Combat Magnum) jeho verze se stavitelnými mířidly; 681 a 686 jsou odpovídající nerezová provedení. Základní válec pojme 6 nábojů .357 Magnum, verze 686 Plus 7 nábojů. Model 686 patří k nejoblíbenějším revolverům vůbec a je rozšířený v revolverových kategoriích praktické střelby i jako služební zbraň amerických policií. Model 986 z dílny Performance Center je specializovaný revolver v ráži 9×19 s nerezovým rámem, titanovým válcem na 7 nábojů nabíjených v půlměsíčkových sponách (moon clips) a hlavní s plnou lištou; je určen zejména pro sportovní střelbu.
+L-rám je střední až velký rám dvojčinných revolverů Smith & Wesson, uvedený počátkem 80. let jako odolnější náhrada K-rámu pro trvalou střelbu náboji .357 Magnum. Oproti K-rámu má silnější horní můstek a okolí přechodového kužele, mohutnější válec a hlaveň s plnou spodní lištou, která zvyšuje hmotnost vpředu a tlumí zdvih zbraně. Rám je pevný, válec výklopný a spoušť DA/SA.
 
-Oficiální stránky výrobce: https://www.smith-wesson.com
+Model 581 (Distinguished Service Magnum) je černěný ocelový revolver s pevnými mířidly, Model 586 (Distinguished Combat Magnum) jeho verze se stavitelnými mířidly; 681 a 686 jsou odpovídající nerezová provedení. Základní válec pojme 6 nábojů .357 Magnum, verze 686 Plus 7 nábojů. Model 686 patří k nejoblíbenějším revolverům vůbec a je rozšířený v revolverových kategoriích praktické střelby i jako služební zbraň amerických policií.
+
+Model 986 z dílny Performance Center je specializovaný revolver v ráži 9×19 s nerezovým rámem, titanovým válcem na 7 nábojů nabíjených v půlměsíčkových sponách (moon clips) a hlavní s plnou lištou; je určen zejména pro sportovní střelbu.
+
+Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)

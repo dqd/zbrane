@@ -1,6 +1,12 @@
 # HK MP5 a klony
 samopal, karabina, samonabíjecí, heckler & koch, pof, německo, pákistán, turecko, 9×19, služební
 
-Heckler & Koch MP5 je samopal německé firmy Heckler & Koch z Oberndorfu, vyráběný od roku 1966 a patřící k nejrozšířenějším policejním samopalům na světě. Konstrukčně vychází z pušky G3: používá válečkově brzděný (oddálený) závěr a střílí z uzavřeného závěru, což přispívá k jeho pověstné přesnosti. Pouzdro je z lisovaného ocelového plechu, rukojeť a pažba z plastu, nabízely se pevné i výsuvné pažby a integrálně tlumená verze MP5SD. Základní ráží je 9×19 se zakřivenými ocelovými zásobníky na 15 nebo 30 nábojů; existovaly i verze MP5/10 a MP5/40 v rážích 10 mm Auto a .40 S&W. MP5 používají stovky policejních a armádních jednotek po celém světě, od německé GSG 9 a britské SAS po americké policejní zásahové jednotky. Pro civilní trh vyráběl HK samonabíjecí verze HK94 a SP89 a od roku 2019 vyrábí v Oberndorfu samonabíjecí SP5 a SP5K. MP5 se dále licenčně i nelicenčně vyráběl v mnoha zemích: pákistánská POF (Pakistan Ordnance Factories) nabízí samonabíjecí POF MP5 a turecká MKE samonabíjecí verze prodávané například jako Zenith Z-5 nebo T94. Klony se obvykle liší kvalitou zpracování, povrchovou úpravou a drobnostmi v konstrukci, ale většinou jsou kompatibilní s originálními zásobníky a příslušenstvím. Vedle toho existují i americké klony, například od PTR.
+Heckler & Koch MP5 je samopal německé firmy Heckler & Koch z Oberndorfu, vyráběný od roku 1966 a patřící k nejrozšířenějším policejním samopalům na světě. Konstrukčně vychází z pušky G3: používá válečkově brzděný (oddálený) závěr a střílí z uzavřeného závěru, což přispívá k jeho pověstné přesnosti.
 
-Oficiální stránky výrobce: https://www.heckler-koch.com
+Pouzdro je z lisovaného ocelového plechu, rukojeť a pažba z plastu, nabízely se pevné i výsuvné pažby a integrálně tlumená verze MP5SD. Základní ráží je 9×19 se zakřivenými ocelovými zásobníky na 15 nebo 30 nábojů; existovaly i verze MP5/10 a MP5/40 v rážích 10 mm Auto a .40 S&W.
+
+MP5 používají stovky policejních a armádních jednotek po celém světě, od německé GSG 9 a britské SAS po americké policejní zásahové jednotky. Pro civilní trh vyráběl HK samonabíjecí verze HK94 a SP89 a od roku 2019 vyrábí v Oberndorfu samonabíjecí SP5 a SP5K.
+
+MP5 se dále licenčně i nelicenčně vyráběl v mnoha zemích: pákistánská POF (Pakistan Ordnance Factories) nabízí samonabíjecí POF MP5 a turecká MKE samonabíjecí verze prodávané například jako Zenith Z-5 nebo T94. Klony se obvykle liší kvalitou zpracování, povrchovou úpravou a drobnostmi v konstrukci, ale většinou jsou kompatibilní s originálními zásobníky a příslušenstvím. Vedle toho existují i americké klony, například od PTR.
+
+Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)

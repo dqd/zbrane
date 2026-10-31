@@ -1,4 +1,10 @@
 # Mauser C96 „Broomhandle“
 pistole, samonabíjecí, mauser, německo, 7,63 mauser, 9×19, vojenská, historická, sběratelská
 
-Mauser C96 je jedna z prvních komerčně úspěšných samonabíjecích pistolí. Navrhli ji bratři Feederleové ve zbrojovce Mauser v Oberndorfu nad Neckarem a vyráběla se od roku 1896 zhruba do roku 1937. Přezdívku „Broomhandle“ (násada koštěte) jí vysloužila úzká rukojeť s dřevěnými střenkami. Funguje na principu krátkého zákluzu hlavně, uzamčení zajišťuje výkyvný uzamykací blok pod závěrem; zbraň je celá z obráběné oceli. Typický je pevný zásobník před lučíkem, nabíjený shora z nábojových pásků, obvykle na 10 nábojů (existovaly i šestiranné a dvacetiranné verze), a dřevěné pouzdro, které se dalo připojit jako ramenní opěrka. Základní ráží byla 7,63 Mauser; za 1. světové války vznikla pro německou armádu verze v 9×19 Parabellum, označovaná vyřezanou červenou devítkou na střenkách („Red 9“). Pozdější model M712 Schnellfeuer z 30. let měl výměnný zásobník a umožňoval střelbu dávkou. Celkem bylo vyrobeno přibližně jeden milion kusů a v Číně, kde byla C96 mimořádně rozšířená, vznikly i četné místní kopie. Pistoli používala německá armáda, Čína, Turecko, Itálie a v různých konfliktech celá řada dalších uživatelů.
+Mauser C96 je jedna z prvních komerčně úspěšných samonabíjecích pistolí. Navrhli ji bratři Feederleové ve zbrojovce Mauser v Oberndorfu nad Neckarem a vyráběla se od roku 1896 zhruba do roku 1937. Přezdívku „Broomhandle“ (násada koštěte) jí vysloužila úzká rukojeť s dřevěnými střenkami.
+
+Funguje na principu krátkého zákluzu hlavně, uzamčení zajišťuje výkyvný uzamykací blok pod závěrem; zbraň je celá z obráběné oceli. Typický je pevný zásobník před lučíkem, nabíjený shora z nábojových pásků, obvykle na 10 nábojů (existovaly i šestiranné a dvacetiranné verze), a dřevěné pouzdro, které se dalo připojit jako ramenní opěrka.
+
+Základní ráží byla 7,63 Mauser; za 1. světové války vznikla pro německou armádu verze v 9×19 Parabellum, označovaná vyřezanou červenou devítkou na střenkách („Red 9“). Pozdější model M712 Schnellfeuer z 30. let měl výměnný zásobník a umožňoval střelbu dávkou.
+
+Celkem bylo vyrobeno přibližně jeden milion kusů a v Číně, kde byla C96 mimořádně rozšířená, vznikly i četné místní kopie. Pistoli používala německá armáda, Čína, Turecko, Itálie a v různých konfliktech celá řada dalších uživatelů.

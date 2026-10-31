@@ -1,6 +1,10 @@
 # Kahr Arms
 pistole, samonabíjecí, dao, kahr, usa, 9×19, .380 acp, .45 acp, ocelový rám, polymerový rám, skryté nošení
 
-Kahr Arms je americký výrobce kompaktních pistolí pro skryté nošení, založený v polovině 90. let Justinem Moonem; výroba probíhá ve Worcesteru v Massachusetts a firma je dnes jádrem skupiny Kahr Firearms Group, kam patří i Magnum Research a Auto-Ordnance. Pistole Kahr fungují na principu krátkého zákluzu s uzamčením výkyvnou hlavní, jejíž patentovaný stranově přesazený výstupek pod komorou umožňuje umístit spoušťový mechanismus výš a zmenšit celkovou výšku zbraně. Spoušť je typu DAO s úderníkem, který dopíná až stisk spouště, s dlouhým, ale hladkým chodem. Prvním modelem byla K9 s ocelovým rámem a zásobníkem na 7 nábojů 9×19, menší MK9 (Micro) má rovněž ocelový rám a zásobník na 6 nábojů. PM9 je odlehčená verze s polymerovým rámem a zásobníkem na 6 nábojů, CM9 její levnější provedení s jednodušším zpracováním a klasickým vývrtem hlavně. PM45 nabízí podobné rozměry v ráži .45 ACP se zásobníkem na 5 nábojů a P380 je nejmenší polymerová pistole v ráži .380 ACP se zásobníkem na 6 nábojů. Závěry jsou zpravidla z nerezové oceli.
+Kahr Arms je americký výrobce kompaktních pistolí pro skryté nošení, založený v polovině 90. let Justinem Moonem; výroba probíhá ve Worcesteru v Massachusetts a firma je dnes jádrem skupiny Kahr Firearms Group, kam patří i Magnum Research a Auto-Ordnance.
 
-Oficiální stránky výrobce: https://www.kahr.com
+Pistole Kahr fungují na principu krátkého zákluzu s uzamčením výkyvnou hlavní, jejíž patentovaný stranově přesazený výstupek pod komorou umožňuje umístit spoušťový mechanismus výš a zmenšit celkovou výšku zbraně. Spoušť je typu DAO s úderníkem, který dopíná až stisk spouště, s dlouhým, ale hladkým chodem.
+
+Prvním modelem byla K9 s ocelovým rámem a zásobníkem na 7 nábojů 9×19, menší MK9 (Micro) má rovněž ocelový rám a zásobník na 6 nábojů. PM9 je odlehčená verze s polymerovým rámem a zásobníkem na 6 nábojů, CM9 její levnější provedení s jednodušším zpracováním a klasickým vývrtem hlavně. PM45 nabízí podobné rozměry v ráži .45 ACP se zásobníkem na 5 nábojů a P380 je nejmenší polymerová pistole v ráži .380 ACP se zásobníkem na 6 nábojů. Závěry jsou zpravidla z nerezové oceli.
+
+Oficiální stránky výrobce: [www.kahr.com](https://www.kahr.com)

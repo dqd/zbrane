@@ -1,6 +1,10 @@
 # Remington 799 (Zastava mini-Mauser)
 kulovnice, opakovací, remington, zastava, srbsko, mini-mauser, .223 rem, .22-250 rem, 7,62×39, lovecká
 
-Remington 799 je opakovací kulovnice, kterou Remington na počátku 2010s krátce nabízel na americkém trhu, ve skutečnosti však šlo o zbraň vyráběnou srbskou firmou Zastava Oružje v Kragujevaci na základě jejího modelu M85, známého jako „mini-Mauser“. Konstrukčně jde o zmenšený systém Mauser 98 pro krátké náboje: válcový odsuvný závěr se dvěma předními uzamykacími ozuby, řízené podávání náboje dlouhým nerotujícím drápovým vytahovačem a pevnou schránku na 5 nábojů. Pouzdro závěru i hlaveň jsou ocelové a pažba je z laminovaného dřeva v provedení pro americký trh. Remington zbraň nabízel v rážích .22 Hornet, .222 Rem, .223 Rem, .22-250 Rem a 7,62×39, tedy ve střelivu vhodném pro lov drobné zvěře a škodné. Vyráběla se poměrně krátce a prodávala jen v omezeném počtu, kritizována byla hlavně slabší spoušť a kolísavá kvalita zpracování, zatímco robustní mauserovský princip byl hodnocen příznivě. Samotný Zastava M85 se dál vyrábí a prodává pod vlastní značkou v různých provedeních pažby, mimo jiné i na evropském trhu, a je obdobou české CZ 527.
+Remington 799 je opakovací kulovnice, kterou Remington na počátku 2010s krátce nabízel na americkém trhu, ve skutečnosti však šlo o zbraň vyráběnou srbskou firmou Zastava Oružje v Kragujevaci na základě jejího modelu M85, známého jako „mini-Mauser“.
 
-Oficiální stránky výrobce: https://www.zastava-arms.rs
+Konstrukčně jde o zmenšený systém Mauser 98 pro krátké náboje: válcový odsuvný závěr se dvěma předními uzamykacími ozuby, řízené podávání náboje dlouhým nerotujícím drápovým vytahovačem a pevnou schránku na 5 nábojů. Pouzdro závěru i hlaveň jsou ocelové a pažba je z laminovaného dřeva v provedení pro americký trh. Remington zbraň nabízel v rážích .22 Hornet, .222 Rem, .223 Rem, .22-250 Rem a 7,62×39, tedy ve střelivu vhodném pro lov drobné zvěře a škodné.
+
+Vyráběla se poměrně krátce a prodávala jen v omezeném počtu, kritizována byla hlavně slabší spoušť a kolísavá kvalita zpracování, zatímco robustní mauserovský princip byl hodnocen příznivě. Samotný Zastava M85 se dál vyrábí a prodává pod vlastní značkou v různých provedeních pažby, mimo jiné i na evropském trhu, a je obdobou české CZ 527.
+
+Oficiální stránky výrobce: [www.zastava-arms.rs](https://www.zastava-arms.rs)

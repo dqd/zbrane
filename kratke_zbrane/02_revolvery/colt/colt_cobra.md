@@ -1,6 +1,10 @@
 # Colt Cobra (2017) a Night Cobra
 revolver, da/sa, dao, colt, usa, .38 special, nerez, skryté nošení, sebeobrana
 
-Colt Cobra je kompaktní šestiranný dvojčinný revolver americké firmy Colt's Manufacturing Company z West Hartfordu v Connecticutu. Jméno navazuje na původní Cobru z let 1950–1981, což byla lehká verze revolveru Detective Special na malém D-rámu s rámem z hliníkové slitiny. Nová Cobra, uvedená v roce 2017, je však samostatná konstrukce s rámem z nerezové oceli. Revolver má pevný rám, výklopný válec na 6 nábojů .38 Special (včetně +P), hlaveň délky 2″ a nový spoušťový mechanismus s lineární listovou pružinou (LL2), který má zajistit hladký a rovnoměrný chod spouště. Standardní Cobra pracuje v režimu DA/SA s vnějším kohoutem, má gumovou pažbičku Hogue a mušku s optickým vláknem. Šest nábojů v revolveru velikosti obvyklého pětiranného „snubby“ je hlavní předností oproti konkurenci. Night Cobra, uvedená o něco později, je verze určená výhradně pro skryté nošení: má kohout bez ostruhy a spoušť DAO, aby se nezachytávala o oděv, černou povrchovou úpravu a tritiovou mušku pro střelbu za šera. Na stejný mechanismus navázal i obnovený King Cobra v ráži .357 Magnum.
+Colt Cobra je kompaktní šestiranný dvojčinný revolver americké firmy Colt's Manufacturing Company z West Hartfordu v Connecticutu. Jméno navazuje na původní Cobru z let 1950–1981, což byla lehká verze revolveru Detective Special na malém D-rámu s rámem z hliníkové slitiny. Nová Cobra, uvedená v roce 2017, je však samostatná konstrukce s rámem z nerezové oceli.
 
-Oficiální stránky výrobce: https://www.colt.com
+Revolver má pevný rám, výklopný válec na 6 nábojů .38 Special (včetně +P), hlaveň délky 2″ a nový spoušťový mechanismus s lineární listovou pružinou (LL2), který má zajistit hladký a rovnoměrný chod spouště. Standardní Cobra pracuje v režimu DA/SA s vnějším kohoutem, má gumovou pažbičku Hogue a mušku s optickým vláknem. Šest nábojů v revolveru velikosti obvyklého pětiranného „snubby“ je hlavní předností oproti konkurenci.
+
+Night Cobra, uvedená o něco později, je verze určená výhradně pro skryté nošení: má kohout bez ostruhy a spoušť DAO, aby se nezachytávala o oděv, černou povrchovou úpravu a tritiovou mušku pro střelbu za šera. Na stejný mechanismus navázal i obnovený King Cobra v ráži .357 Magnum.
+
+Oficiální stránky výrobce: [www.colt.com](https://www.colt.com)

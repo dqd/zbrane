@@ -1,6 +1,10 @@
 # Charter Arms Undercover a On Duty
 revolver, da/sa, výklopný válec, charter arms, usa, .38 special, pětiranný, kompaktní, sebeobrana
 
-Charter Arms Undercover je kompaktní pětiranný revolver v ráži .38 Special, který byl prvním modelem firmy Charter Arms, založené v roce 1964 Douglasem McClenahanem v Connecticutu. Jde o dvojčinný revolver (DA/SA) s výklopným válcem a krátkou hlavní (typicky 2"), určený ke skrytému nošení a sebeobraně. Konstrukční zvláštností je jednodílný rám bez boční odnímatelné desky, který je pevný i při malé hmotnosti. Undercover se vyrábí s ocelovým rámem v brunýrovaném nebo nerezovém provedení, existují i odlehčené verze s rámem z hliníkové slitiny. Model On Duty je odlehčená varianta v téže ráži s částečně krytým kohoutem, který se nezachytává o oděv, ale umožňuje i jednočinnou střelbu; příbuzný model Off Duty má kohout krytý zcela a střílí pouze dvojčinně. Firma prošla několika majiteli a bankrotem v 90. letech, poté výrobu obnovila pod názvem Charter 2000 a od roku 2005 znovu jako Charter Arms se sídlem v Sheltonu ve státě Connecticut. Revolvery Charter Arms patří k cenově dostupným americkým revolverům a od stejného rámu jsou odvozeny i další modely (např. Undercoverette v ráži .32 H&R Magnum).
+Charter Arms Undercover je kompaktní pětiranný revolver v ráži .38 Special, který byl prvním modelem firmy Charter Arms, založené v roce 1964 Douglasem McClenahanem v Connecticutu. Jde o dvojčinný revolver (DA/SA) s výklopným válcem a krátkou hlavní (typicky 2"), určený ke skrytému nošení a sebeobraně. Konstrukční zvláštností je jednodílný rám bez boční odnímatelné desky, který je pevný i při malé hmotnosti.
 
-Oficiální stránky výrobce: https://www.charterfirearms.com
+Undercover se vyrábí s ocelovým rámem v brunýrovaném nebo nerezovém provedení, existují i odlehčené verze s rámem z hliníkové slitiny. Model On Duty je odlehčená varianta v téže ráži s částečně krytým kohoutem, který se nezachytává o oděv, ale umožňuje i jednočinnou střelbu; příbuzný model Off Duty má kohout krytý zcela a střílí pouze dvojčinně.
+
+Firma prošla několika majiteli a bankrotem v 90. letech, poté výrobu obnovila pod názvem Charter 2000 a od roku 2005 znovu jako Charter Arms se sídlem v Sheltonu ve státě Connecticut. Revolvery Charter Arms patří k cenově dostupným americkým revolverům a od stejného rámu jsou odvozeny i další modely (např. Undercoverette v ráži .32 H&R Magnum).
+
+Oficiální stránky výrobce: [www.charterfirearms.com](https://www.charterfirearms.com)

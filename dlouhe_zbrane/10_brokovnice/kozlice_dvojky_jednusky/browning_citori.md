@@ -5,4 +5,4 @@ Browning Citori je kozlice americké značky Browning, kterou od roku 1973 vyrá
 
 Cynergy, uvedená v roce 2004 a vyráběná rovněž u Miroku, je konstrukčně odlišná: má velmi nízký rám se závěsem MonoLock, nový bicí mechanismus s úderníky místo klasických kladívek a výrazný, „futuristický“ design pažby. Díky nízkému profilu rámu leží osa hlavní blíž ruce střelce. Vyrábí se v loveckých i sportovních verzích, především v rážích 12 a 20.
 
-Oficiální stránky výrobce: https://www.browning.com
+Oficiální stránky výrobce: [www.browning.com](https://www.browning.com)

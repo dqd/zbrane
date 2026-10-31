@@ -1,6 +1,10 @@
 # CZ 700 M1 Sniper a CZ 750 Sniper
 kulovnice, opakovací, cz, česko, .308 win, 7,62×51, odstřelovačská, služební, policejní
 
-CZ 700 M1 Sniper a CZ 750 Sniper jsou opakovací odstřelovačské pušky České zbrojovky Uherský Brod, vyvinuté především pro policejní a armádní uživatele a prodávané i sportovním střelcům. Obě jsou komorovány pro náboj .308 Win (7,62×51 NATO) a zásobují se z odnímatelného zásobníku na 10 nábojů. CZ 700 M1 je čistě účelová konstrukce s vlastním závěrovým systémem, těžkou volně uloženou hlavní, seřiditelnou spouští a plně nastavitelnou pažbou (lícnice, délka, botka), s montážní lištou pro optiku a bez otevřených mířidel. Šlo o relativně drahou zbraň vyráběnou v malých sériích. CZ 750 vznikla jako dostupnější alternativa postavená na sériovém mauserovském systému lovecké kulovnice CZ 550 s řízeným podáváním náboje; má těžkou hlaveň, zvětšenou rukojeť závěru, seřiditelnou spoušť a syntetickou pažbu s nastavitelnou lícnicí a délkou. Hlavní rozdíl mezi nimi je tedy v tom, že CZ 700 je specializovaná konstrukce, zatímco CZ 750 je odstřelovačská úprava osvědčeného loveckého systému. V nabídce výrobce obě postupně nahradila puška CZ TSR.
+CZ 700 M1 Sniper a CZ 750 Sniper jsou opakovací odstřelovačské pušky České zbrojovky Uherský Brod, vyvinuté především pro policejní a armádní uživatele a prodávané i sportovním střelcům. Obě jsou komorovány pro náboj .308 Win (7,62×51 NATO) a zásobují se z odnímatelného zásobníku na 10 nábojů.
 
-Oficiální stránky výrobce: https://www.czub.cz
+CZ 700 M1 je čistě účelová konstrukce s vlastním závěrovým systémem, těžkou volně uloženou hlavní, seřiditelnou spouští a plně nastavitelnou pažbou (lícnice, délka, botka), s montážní lištou pro optiku a bez otevřených mířidel. Šlo o relativně drahou zbraň vyráběnou v malých sériích. CZ 750 vznikla jako dostupnější alternativa postavená na sériovém mauserovském systému lovecké kulovnice CZ 550 s řízeným podáváním náboje; má těžkou hlaveň, zvětšenou rukojeť závěru, seřiditelnou spoušť a syntetickou pažbu s nastavitelnou lícnicí a délkou.
+
+Hlavní rozdíl mezi nimi je tedy v tom, že CZ 700 je specializovaná konstrukce, zatímco CZ 750 je odstřelovačská úprava osvědčeného loveckého systému. V nabídce výrobce obě postupně nahradila puška CZ TSR.
+
+Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)

@@ -1,6 +1,10 @@
 # Alfa Proj Combat a Defender
 pistole, samonabíjecí, da/sa, alfa proj, česko, 9×19, .40 s&w, .45 acp, polymerový rám, klon cz 75
 
-Alfa Combat a Alfa Defender jsou české samonabíjecí pistole brněnské firmy Alfa-Proj, odvozené od konstrukce CZ 75. Firma založená v roce 1993 je známá především výrobou revolverů; pistole Combat a Defender vyráběla zhruba od roku 2002 a v posledních letech je již ve své nabídce neuvádí. Obě zbraně fungují na principu krátkého zákluzu hlavně s uzamčením Browningova typu (sklopná hlaveň řízená vačkovou drážkou), závěr je po vzoru CZ 75 veden uvnitř rámu, což zajišťuje nízkou osu hlavně. Spoušťový mechanismus je DA/SA s vnějším kohoutem. Hlavní odlišností od originálu je rám z polymeru, koncepčně podobně jako u italské řady Tanfoglio Force; závěr a hlaveň jsou ocelové. Pistole se vyráběly v rážích 9×19, .40 S&W a .45 ACP. Combat je plnohodnotná služební velikost, Defender jeho kompaktní verze s hlavní dlouhou 93 mm a hmotností kolem 750 g; zásobník Defenderu pojme 15 nábojů 9×19, 12 nábojů .40 S&W nebo 10 nábojů .45 ACP. V nabídce se objevila i celoocelová varianta Iron Combat. Na trhu byly pistole Alfa vnímány jako cenově dostupnější alternativa k originálním zbraním CZ, uživatelé oceňovali zejména slušnou přesnost a jednoduchou rozborku.
+Alfa Combat a Alfa Defender jsou české samonabíjecí pistole brněnské firmy Alfa-Proj, odvozené od konstrukce CZ 75. Firma založená v roce 1993 je známá především výrobou revolverů; pistole Combat a Defender vyráběla zhruba od roku 2002 a v posledních letech je již ve své nabídce neuvádí.
 
-Oficiální stránky výrobce: https://www.alfaproj.cz
+Obě zbraně fungují na principu krátkého zákluzu hlavně s uzamčením Browningova typu (sklopná hlaveň řízená vačkovou drážkou), závěr je po vzoru CZ 75 veden uvnitř rámu, což zajišťuje nízkou osu hlavně. Spoušťový mechanismus je DA/SA s vnějším kohoutem. Hlavní odlišností od originálu je rám z polymeru, koncepčně podobně jako u italské řady Tanfoglio Force; závěr a hlaveň jsou ocelové. Pistole se vyráběly v rážích 9×19, .40 S&W a .45 ACP.
+
+Combat je plnohodnotná služební velikost, Defender jeho kompaktní verze s hlavní dlouhou 93 mm a hmotností kolem 750 g; zásobník Defenderu pojme 15 nábojů 9×19, 12 nábojů .40 S&W nebo 10 nábojů .45 ACP. V nabídce se objevila i celoocelová varianta Iron Combat. Na trhu byly pistole Alfa vnímány jako cenově dostupnější alternativa k originálním zbraním CZ, uživatelé oceňovali zejména slušnou přesnost a jednoduchou rozborku.
+
+Oficiální stránky výrobce: [www.alfaproj.cz](https://www.alfaproj.cz)

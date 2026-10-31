@@ -5,4 +5,4 @@ Hatsan je turecký výrobce z Izmiru, známý především jako jeden z největ�
 
 Escort AimGuard je kompaktní pumpová brokovnice pro obranné použití s 18palcovou (cca 46 cm) hlavní s válcovým vývrtem, trubicovým zásobníkem na 5 nábojů a polymerovou pažbou; používá ji mj. polská policie. Escort MP-A, uvedená v roce 2019, je samonabíjecí brokovnice se schránkovým zásobníkem a pistolovou rukojetí. Samonabíjecí modely Escort využívají plynový píst se samoregulačním ventilem (Smart Valve), který bez seřizování zpracuje náboje s nábojnicí 70 i 76 mm. Označení Magnum, Defender a Optima se objevují u dalších loveckých a obranných provedení a jejich náplň se mezi trhy a ročníky liší.
 
-Oficiální stránky výrobce: https://www.hatsan.com.tr
+Oficiální stránky výrobce: [www.hatsan.com.tr](https://www.hatsan.com.tr)

@@ -1,6 +1,10 @@
 # Canik TP9 a Canik 55
 pistole, samonabíjecí, striker, canik, turecko, 9×19, polymerový rám, služební, sportovní
 
-Téma pokrývá pistole řady TP9 turecké firmy Canik (Samsun Yurt Savunma) ze Samsunu, která byla dříve známa pod značkou Canik55 – číslo 55 je kód provincie Samsun. Před TP9 vyráběla firma ocelové pistole odvozené od CZ 75, například řady Shark a Piranha. První TP9 z roku 2012 byla téměř kopií Waltheru P99: polymerová pistole s úderníkem, spouští DA/SA a tlačítkem pro vypuštění úderníku na závěru. Všechny verze fungují na principu krátkého zákluzu s Browningovým uzamčením a mají polymerový rám, ocelový závěr a výměnné hřbety rukojeti. Následovala TP9SA s jednočinnou spouští (vypouštěč zůstal) a přepracovaná DA/SA verze V2. Verze TP9SF má jednočinnou spoušť bez vypouštěče a zásobník na 18 nábojů 9×19, sportovní TP9SFx prodlouženou hlaveň 5,2″, odlehčený závěr připravený pro kolimátor a zásobník na 20 nábojů. Kompaktnější TP9SF Elite (od roku 2017) má hlaveň 4,2″ a zásobník na 15 nábojů, Elite SC je subkompakt pro skryté nošení. Pistole TP9 používají turecké ozbrojené síly a turecká národní policie, ve světě se proslavily příznivým poměrem ceny a výkonu.
+Téma pokrývá pistole řady TP9 turecké firmy Canik (Samsun Yurt Savunma) ze Samsunu, která byla dříve známa pod značkou Canik55 – číslo 55 je kód provincie Samsun. Před TP9 vyráběla firma ocelové pistole odvozené od CZ 75, například řady Shark a Piranha.
 
-Oficiální stránky výrobce: https://www.canik.com
+První TP9 z roku 2012 byla téměř kopií Waltheru P99: polymerová pistole s úderníkem, spouští DA/SA a tlačítkem pro vypuštění úderníku na závěru. Všechny verze fungují na principu krátkého zákluzu s Browningovým uzamčením a mají polymerový rám, ocelový závěr a výměnné hřbety rukojeti. Následovala TP9SA s jednočinnou spouští (vypouštěč zůstal) a přepracovaná DA/SA verze V2.
+
+Verze TP9SF má jednočinnou spoušť bez vypouštěče a zásobník na 18 nábojů 9×19, sportovní TP9SFx prodlouženou hlaveň 5,2″, odlehčený závěr připravený pro kolimátor a zásobník na 20 nábojů. Kompaktnější TP9SF Elite (od roku 2017) má hlaveň 4,2″ a zásobník na 15 nábojů, Elite SC je subkompakt pro skryté nošení. Pistole TP9 používají turecké ozbrojené síly a turecká národní policie, ve světě se proslavily příznivým poměrem ceny a výkonu.
+
+Oficiální stránky výrobce: [www.canik.com](https://www.canik.com)

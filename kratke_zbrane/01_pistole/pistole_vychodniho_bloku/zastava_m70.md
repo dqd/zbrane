@@ -1,6 +1,10 @@
 # Zastava M70 (7,65 Br)
 pistole, samonabíjecí, sa, zastava, jugoslávie, srbsko, 7,65 browning, ocelový rám, služební
 
-Zastava M70 je jugoslávská kompaktní samonabíjecí pistole v ráži 7,65 Browning, kterou od 70. let vyrábí zbrojovka Crvena Zastava (dnes Zastava Oružje) v Kragujevaci v Srbsku. Vzhledem připomíná zmenšenou pistoli M57 (Tokarev), konstrukčně je však jednodušší. Pracuje na principu dynamického (neuzamčeného) závěru s pevnou hlavní, má jednočinnou spoušť s vnějším kohoutem a manuální pojistku na rámu. Celoocelová pistole s hlavní dlouhou 94 mm a hmotností kolem 0,63 kg má jednořadý zásobník na 8 nábojů. Střenky jsou plastové nebo z ořechového dřeva. Vyráběla se také verze v ráži 9 mm Browning krátký (.380 ACP). M70 byla standardní služební zbraní jugoslávské milice (policie) a po rozpadu Jugoslávie ji dále používaly bezpečnostní složky nástupnických států. Pro svou spolehlivost, jednoduchost a dobrou dostupnost je oblíbená i na civilním trhu jako levná pistole pro rekreační střelbu nebo sběratelský kus. Zastava ji v ráži 7,65 mm dodnes nabízí ve svém civilním programu. Nezaměňovat s pistolí M70A, což je větší pistole v ráži 9×19 odvozená od M57.
+Zastava M70 je jugoslávská kompaktní samonabíjecí pistole v ráži 7,65 Browning, kterou od 70. let vyrábí zbrojovka Crvena Zastava (dnes Zastava Oružje) v Kragujevaci v Srbsku. Vzhledem připomíná zmenšenou pistoli M57 (Tokarev), konstrukčně je však jednodušší.
 
-Oficiální stránky výrobce: https://www.zastava-arms.rs
+Pracuje na principu dynamického (neuzamčeného) závěru s pevnou hlavní, má jednočinnou spoušť s vnějším kohoutem a manuální pojistku na rámu. Celoocelová pistole s hlavní dlouhou 94 mm a hmotností kolem 0,63 kg má jednořadý zásobník na 8 nábojů. Střenky jsou plastové nebo z ořechového dřeva. Vyráběla se také verze v ráži 9 mm Browning krátký (.380 ACP).
+
+M70 byla standardní služební zbraní jugoslávské milice (policie) a po rozpadu Jugoslávie ji dále používaly bezpečnostní složky nástupnických států. Pro svou spolehlivost, jednoduchost a dobrou dostupnost je oblíbená i na civilním trhu jako levná pistole pro rekreační střelbu nebo sběratelský kus. Zastava ji v ráži 7,65 mm dodnes nabízí ve svém civilním programu. Nezaměňovat s pistolí M70A, což je větší pistole v ráži 9×19 odvozená od M57.
+
+Oficiální stránky výrobce: [www.zastava-arms.rs](https://www.zastava-arms.rs)
