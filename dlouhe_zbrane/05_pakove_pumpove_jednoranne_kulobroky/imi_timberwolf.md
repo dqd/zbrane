@@ -8,3 +8,5 @@ Funguje na principu pohyblivého předpažbí, jehož posuvem vzad a vpřed se o
 Hlavní ráží je .357 Magnum, ve které lze střílet i náboji .38 Special; kapacita trubkového zásobníku je 10 nábojů. Vznikla také verze v ráži .44 Magnum se stejnou kapacitou, údajně byl vyroben i jediný prototyp v ráži .32-20. Karabina má dřevěnou pažbu a předpažbí a otevřená mířidla.
 
 Podle dostupných údajů bylo do USA dovezeno méně než tisíc kusů, proto jde dnes o poměrně vzácnou a sběratelsky vyhledávanou zbraň. Ruční palné zbraně IMI později převzala firma IWI, Timberwolf se však znovu nevyráběl.
+
+Vlastní někdo IMI Timberwolf, nebo ji alespoň držel v ruce? Pochlubte se kusem, napište, v jakém je stavu a jak se s pumpovou karabinou v .357 Magnum střílí; zmínky o vzácnější verzi v .44 Magnum jsou vítané.

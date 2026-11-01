@@ -8,3 +8,5 @@ Turecká Celik Arms Crossline je dynamická karabina v ráži 9×19 s horním i 
 Italský Spectre M4 firmy SITES z Turína je samopal z 80. let s neobvyklou spouští s dvojčinným režimem, která umožňovala bezpečné nošení s nábojem v komoře, a se čtyřřadými zásobníky na 30 nebo 50 nábojů; vyráběl se i v samonabíjecích civilních verzích. Chorvatský Agram 2000 je jednoduchý samopal 9×19 z 90. let, vzniklý v období války za nezávislost, s kombinací lisovaných a obráběných dílů a zásobníkem před lučíkem; vyskytuje se rovněž v samonabíjecím provedení. Spectre ani Agram se dnes již sériově nevyrábějí.
 
 Oficiální stránky výrobců: [Celik Arms](https://celikarms.com), [Just Right Carbines](https://justrightcarbines.com)
+
+Crossline, JRC, Spectre M4 nebo Agram 2000 – pokud máte některou z nich, napište, jak se vám s ní střílí. A vlastníte-li pistolovou karabinu, která tu ještě nezazněla, klidně ji představte.

@@ -10,3 +10,5 @@ Pistole má polymerový rám, ocelový závěr, úderníkový mechanismus (strik
 Původní model byl kritizován za dlouhý a nepříliš čistý chod spouště; vylepšená verze CCP M2 z roku 2018 přinesla lepší spoušť a další drobné úpravy a později byla doplněna o variantu v ráži .380 ACP.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+Plynem zpožděný závěr SoftCoil je u pistole pro skryté nošení neobvyklé řešení. Jak se vám CCP nebo CCP M2 osvědčila, je mírnější zpětný ráz opravdu znát a jak zvládáte rozebírání a čištění?

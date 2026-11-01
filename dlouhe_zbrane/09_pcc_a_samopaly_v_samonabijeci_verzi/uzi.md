@@ -8,3 +8,5 @@ Pouzdro je z lisovaného ocelového plechu, rukojeť a předpažbí z plastu, pa
 UZI používala izraelská armáda a desítky dalších armád a policií, mimo jiné německý Bundeswehr pod označením MP2, Nizozemsko či Belgie, kde jej licenčně vyráběla FN. Samonabíjecí verze vznikly pro civilní trh, především v USA: tzv. UZI Carbine s hlavní prodlouženou na 16 palců (406 mm) se vyráběla nejprve jako Model A střílející z otevřeného závěru a od roku 1983 jako Model B z uzavřeného závěru. Kromě toho existují samonabíjecí pistolové verze, klony a repliky od různých výrobců a současná IWI nabízí modernizovanou řadu UZI Pro s polymerovým spodním dílem.
 
 Oficiální stránky výrobce: [iwi.net](https://iwi.net)
+
+Jaké UZI máte doma – Carbine Model A nebo B, pistolovou verzi, některý z klonů, nebo moderní UZI Pro? Napište, jak se s ním střílí, jaké zásobníky používáte a co víte o původu svého kusu.

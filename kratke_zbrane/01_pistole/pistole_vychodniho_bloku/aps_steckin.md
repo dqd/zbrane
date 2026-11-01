@@ -8,3 +8,5 @@ Celoocelová zbraň je v ráži 9×18 Makarov, má dvouřadý zásobník na 20 n
 Sériově se vyráběla v 50. letech v závodě Molot ve Vjatských Poljanách; podle ruských pramenů bylo do roku 1958, kdy výroba skončila, dodáno přes 30 000 kusů. Původně byla určena osádkám bojových vozidel, obsluhám zbraní a důstojníkům jako lehčí náhrada samopalu. Ukázala se však jako těžká a s pouzdrem nepraktická, a proto byla z běžné armádní výzbroje stažena.
 
 Později ji ve větší míře používaly speciální jednotky armády, ministerstva vnitra a KGB i další státy východního bloku. V 70. letech vznikla tlumená verze APB s odnímatelnou drátěnou ramenní opěrkou. Ze skladů se APS opakovaně vrací do užívání, mj. v ozbrojených konfliktech na území bývalého SSSR.
+
+Máte APS ve sbírce, nebo jste z něj měli možnost střílet? Napište, jak se s ním střílí s připojeným pouzdrem, jaké značení váš kus nese a co se vám podařilo dohledat o jeho původu.

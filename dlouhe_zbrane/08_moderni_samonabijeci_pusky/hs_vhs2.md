@@ -8,3 +8,5 @@ Pracuje na principu odběru prachových plynů s pístem a otočným závěrem, 
 VHS-2 je standardní puškou chorvatských ozbrojených sil. Pro americký civilní trh ji od roku 2023 dodává pod názvem Hellion firma Springfield Armory, dlouholetý partner HS Produktu; tato verze je pouze samonabíjecí, v základu s hlavní o délce 16″ a s dalšími úpravami pro americké civilní předpisy. Mezi bullpupy se VHS-2 / Hellion odlišuje především plně oboustrannou ovladatelností a kompatibilitou se zásobníky AR-15.
 
 Oficiální stránky výrobce: [www.hs-produkt.hr](https://www.hs-produkt.hr)
+
+Držel někdo z vás VHS-2 nebo americký Hellion? Zajímá nás, jak funguje přestavení výhozu pro leváky, jakou má na bullpup spoušť a jak se s puškou pracuje v praxi.

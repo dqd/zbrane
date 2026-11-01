@@ -8,3 +8,5 @@ Slavia 618 je lehká a menší vzduchovka, která vychází z typů Stella přev
 Větší Slavia 620 vznikla přepracováním modelu 603 s využitím prvků vzduchovky ZV 4 z Opočna, vyráběla se v letech 1960 až 1975 a celkem jí bylo vyrobeno 817 326 kusů, z nichž značná část šla na export. Nahradila ji modernější Slavia 630, vyráběná od počátku 70. let a v roce 1977 modernizovaná (označení mod. 77), s úsťovou rychlostí kolem 170 m/s. Slavia 631 se vyráběla souběžně a od 630 se liší hlavně větší pažbou, vhodnější pro dospělé střelce.
 
 Od roku 2003 se výroba přesunula na Slovensko, kde vzduchovky pro Českou zbrojovku vyráběla firma ZVS. Rozdíly mezi modely jsou tedy hlavně ve velikosti, výkonu a provedení pažby – od lehké „mládežnické“ 618 po plnohodnotnou 631.
+
+Na které Slavii jste se učili střílet? Napište, jestli vám stará 618, 620, 630 nebo 631 ještě slouží, co jste na ní museli opravit a jaké diabolky jí nejvíc sedí.

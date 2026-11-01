@@ -8,3 +8,5 @@ Obě zbraně fungují na principu krátkého zákluzu hlavně s uzamčením Brow
 Combat je plnohodnotná služební velikost, Defender jeho kompaktní verze s hlavní dlouhou 93 mm a hmotností kolem 750 g; zásobník Defenderu pojme 15 nábojů 9×19, 12 nábojů .40 S&W nebo 10 nábojů .45 ACP. V nabídce se objevila i celoocelová varianta Iron Combat. Na trhu byly pistole Alfa vnímány jako cenově dostupnější alternativa k originálním zbraním CZ, uživatelé oceňovali zejména slušnou přesnost a jednoduchou rozborku.
 
 Oficiální stránky výrobce: [www.alfaproj.cz](https://www.alfaproj.cz)
+
+Vlastníte Alfa Combat, kompaktní Defender nebo celoocelový Iron Combat? Zajímá nás, jak polymerový rám obstál po letech střílení, v jaké ráži pistoli máte a jak si stojí ve srovnání s originální CZ 75.

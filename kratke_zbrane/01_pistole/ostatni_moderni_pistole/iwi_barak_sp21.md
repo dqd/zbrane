@@ -8,3 +8,5 @@ Pistole funguje na principu krátkého zákluzu; přestože zaoblený závěr p�
 Vyráběla se v ráži 9×19 (zásobník na 15 nábojů), .40 S&W (12 nábojů) a .45 ACP (10 nábojů), s hlavní délky 99 mm. V USA ji prodávala nejprve firma Magnum Research pod označením SP-21, později IWI US.
 
 Oficiální stránky výrobce: [www.iwi.net](https://www.iwi.net)
+
+Barak SP-21 se u nás nevidí často – pokud ji máte, napište, ve které ráži, jak se osvědčila kombinace polygonálního vývrtu a DA/SA spouště a zda nosíte s nataženým a zajištěným kohoutem.

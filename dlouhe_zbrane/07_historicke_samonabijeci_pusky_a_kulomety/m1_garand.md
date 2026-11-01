@@ -8,3 +8,5 @@ Puška se vyráběla ve Springfield Armory a u firmy Winchester, po válce také
 Beretta BM59 je italská modernizace Garandu, kterou Beretta vyvinula koncem 50. let na základě vlastní licenční výroby M1: dostala ráži 7,62×51 NATO, odnímatelný zásobník na 20 nábojů, možnost střelby dávkou a kombinovanou úsťovou brzdu s nástavcem pro vystřelování granátů. Existovaly verze pro pěchotu, horské a výsadkové jednotky se sklopnou pažbou; BM59 sloužila v italské armádě do zavedení pušek Beretta AR70/90. Civilní samonabíjecí verze se nabízela pod označením BM62.
 
 Oficiální stránky výrobce: [Beretta](https://www.beretta.com)
+
+Ozývá se i na vaší střelnici charakteristický zvuk vyhozeného rámečku? Napište, od kterého výrobce váš M1 Garand pochází a jak řešíte střelivo .30-06, a pokud máte BM59 nebo civilní BM62, porovnejte je s originálem.

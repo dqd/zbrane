@@ -8,3 +8,5 @@ V Sovětském svazu se SKS vyráběla v Tule a Iževsku, než ji v první linii 
 Jugoslávská Zastava M59 je téměř přesnou kopií sovětského vzoru, vyráběnou v Kragujevaci (Zavodi Crvena Zastava). Verze M59/66 přidala na konec hlavně integrovaný nástavec pro vystřelování puškových granátů s uzávěrem plynového systému a sklopné granátové hledí, díky čemuž je delší a těžší; pozdější M59/66A1 má navíc světélkující mířidla pro noční střelbu. Jugoslávská armáda zbraně používala až do 90. let a po rozpadu Jugoslávie se ve velkém dostaly na civilní trh jako levné a spolehlivé střelecké i sběratelské karabiny.
 
 Oficiální stránky výrobce: [Zastava Oružje](https://www.zastava-arms.rs)
+
+Sovětská SKS, čínský Typ 56, nebo jugoslávská M59/66 s granátovým nástavcem? Pochlubte se svou karabinou, jejím značením a stavem a napište, jak vám střílí v 7,62×39.

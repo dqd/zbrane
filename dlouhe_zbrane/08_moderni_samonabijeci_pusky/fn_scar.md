@@ -8,3 +8,5 @@ SCAR 16S je v ráži 5,56×45 / .223 Rem a používá zásobníky STANAG, SCAR 1
 Civilní verze se vyrábějí ve FN America v USA (Columbia, Jižní Karolína) a liší se od vojenských zejména absencí střelby dávkou a delší hlavní kolem 16″. Vojenské pušky SCAR používají jednotky USSOCOM, belgická armáda a ozbrojené síly či speciální jednotky řady dalších zemí; SCAR-H se zvláště prosadil jako lehká bojová puška a zbraň přesného střelce (SCAR-H PR / Mk 20 SSR).
 
 Oficiální stránky výrobce: [www.fnherstal.com](https://www.fnherstal.com)
+
+16S, nebo 17S? Podělte se, kterou verzi SCARu máte, jak jste si zvykli na natahovací páku pohybující se se závěrem, jakou optiku používáte a jak jste spokojeni s přesností.

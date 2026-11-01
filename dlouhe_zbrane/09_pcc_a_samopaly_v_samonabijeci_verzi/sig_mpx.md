@@ -8,3 +8,5 @@ Pouzdro je z hliníkové slitiny, ergonomie i ovládací prvky vycházejí z AR-
 SIG MCX Rattler není pistolová zbraň v pravém slova smyslu, ale ultrakrátká verze pušky MCX se stejným plynovým systémem s krátkým zdvihem pístu a se sklopnou pažbou, určená pro náboje .300 AAC Blackout a 5,56×45. S MPX sdílí koncepci kompaktní zbraně PDW a velkou část ergonomie, používá však standardní zásobníky AR-15/STANAG. Rattler byl vyvinut na objednávku amerického velitelství speciálních operací (USSOCOM) a v civilní samonabíjecí podobě se prodává jako pistole i SBR.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Kdo máte MPX nebo Rattler, napište, jak se v praxi projevuje plynový systém s krátkým zdvihem pístu – měkkost střelby, chování s tlumičem i s různým střelivem – a jak MPX obstojí proti PCC s dynamickým závěrem.

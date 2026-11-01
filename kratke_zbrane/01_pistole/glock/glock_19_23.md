@@ -8,3 +8,5 @@ Glock 19, uvedený v roce 1988, je zkrácená verze G17 se zásobníkem na 15 n�
 Glock 19X vznikl na základě pistole, kterou Glock přihlásil do soutěže americké armády na novou služební pistoli: kombinuje krátký závěr G19 s plnou rukojetí G17 (zásobník na 17 nábojů) a od roku 2018 se prodával v pískové barvě. Glock 45 z roku 2019 je stejná kombinace v černém provedení se znaky generace Gen5, například předním vroubkováním závěru. Glock 49 je opačná kombinace – rám velikosti G19 s delším závěrem a hlavní G17, která nabízí delší záměrnou a vyšší úsťovou rychlost při zachování kompaktní rukojeti. Zásobníky jsou v rámci ráže vzájemně kompatibilní – do kompaktních modelů lze vložit delší zásobníky z G17.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Dáváte přednost klasické devatenáctce, nebo některému z crossoverů – G19X, G45 či G49? Napište, kterou kombinaci rámu a závěru používáte, jak se vám osvědčila při nošení i na střelnici a jestli do ní dáváte zásobníky z G17.

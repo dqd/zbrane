@@ -6,3 +6,5 @@ SVT-40 (Samozarjadnaja vintovka Tokareva, obrazec 1940) je sovětská samonabíj
 Vyráběla se především v Tule a Iževsku v letech 1940–1945, celkem přibližně v 1,6 milionu kusů; existovala také odstřelovací verze s puškohledem PU a automatická AVT-40. Rudá armáda měla původně v plánu, že se SVT stane hlavní pěchotní zbraní, válečné ztráty a nároky na výrobu však vedly k návratu k jednodušší opakovací pušce Mosin-Nagant M1891/30.
 
 SVT-40 byla oblíbená u námořní pěchoty a zkušenějších jednotek, u běžných odvedenců však trpěla citlivostí na údržbu a znečištění. Ukořistěné pušky ve velkém používali Finové i Němci (jako Gewehr 259(r)) a SVT ovlivnila i konstrukci německé pušky G43. Na civilním trhu se SVT-40 objevuje hlavně jako zbraň z bývalých sovětských skladů, často po arzenálové repasi.
+
+Je vaše SVT-40 po arzenálové repasi, nebo nese původní značení? Napište, jak máte nastavený plynový regulátor, jak je puška spolehlivá a zda se vám podařilo dohledat rok a zbrojovku výroby.

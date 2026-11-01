@@ -8,3 +8,5 @@ Pouzdro závěru i hlaveň jsou ocelové, u novějších provedení je závěr d
 Jednotlivé verze se liší hlavně pažbou a povrchovou úpravou: základní provedení mají pažbu z technopolymeru (černou nebo v maskovacím vzoru), vyšší řady (např. Special Hunt Elite) pažbu s dekorem v imitaci karbonu a drážkovanou hlaveň; Horizon All Terrain je kratší karabina pro lov v hustém porostu. Výrobce poskytuje na mechanické díly sedmiletou záruku.
 
 Oficiální stránky výrobce: [www.franchi.com](https://www.franchi.com)
+
+Jak si v revíru vede Franchi Horizon? Podělte se o zkušenosti se spouští Relia Trigger, s přesností v jednotlivých rážích a případně s kratší verzí All Terrain do hustého porostu.

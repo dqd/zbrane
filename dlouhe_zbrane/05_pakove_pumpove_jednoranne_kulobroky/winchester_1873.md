@@ -10,3 +10,5 @@ Díky shodnému střelivu s revolvery Colt Single Action Army byla oblíbená u 
 Dnes se Winchester 1873 vyrábí jako replika především u italské firmy Uberti (skupina Beretta), jejíž kopie jsou základem nabídky řady dovozců (např. Cimarron, Taylor's), a v Japonsku firmou Miroku pod značkou Winchester. Repliky se vyrábějí z moderních ocelí a v rážích jako .44-40 WCF, .45 Colt, .357 Magnum / .38 Special či .44 Special a jsou oblíbené hlavně ve westernové střelbě (Cowboy Action Shooting).
 
 Oficiální stránky výrobců: [Uberti](https://www.uberti.com), [Winchester](https://www.winchesterguns.com)
+
+Máte originální Winchester 1873, nebo střílíte s replikou od Uberti či Miroku? Napište, v jaké ráži, jestli s ním jezdíte na westernovou střelbu a jak se vám osvědčil, případně jak dohledáváte historii původního kusu.

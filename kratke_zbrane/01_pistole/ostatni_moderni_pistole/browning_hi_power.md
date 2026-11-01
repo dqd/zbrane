@@ -8,3 +8,5 @@ Funguje na principu krátkého zákluzu hlavně s uzamčením výkyvnou hlavní,
 Za války se vyráběla pro Wehrmacht jako Pistole 640(b) a v Kanadě u firmy John Inglis pro spojence, po válce ji používaly armády a policie desítek zemí, mimo jiné britská armáda jako L9A1. Modernizace Mk II (1982) přinesla lepší mířidla a oboustrannou pojistku, Mk III (koncem 80. let) zesílený závěr a pojistku úderníku. FN klasickou výrobu ukončila koncem 10. let a v roce 2022 představila novou FN High Power. Maďarská FÉG vyráběla věrné kopie i vlastní dvojčinnou verzi P9R s pojistkou a vypouštěním kohoutu na závěru; z ní vycházela Mauser 90 DA, vyráběná u FÉG pro firmu Mauser v 90. letech.
 
 Oficiální stránky výrobce: [www.fnherstal.com](https://www.fnherstal.com)
+
+Máte doma Hi-Power, ať už belgickou FN, kanadský Inglis, nebo maďarskou FÉG? Napište, kterou verzi vlastníte, jak se s ní střílí a co říkáte na novou FN High Power ve srovnání s klasikou.

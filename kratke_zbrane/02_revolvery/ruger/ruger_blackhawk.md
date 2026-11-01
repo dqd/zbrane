@@ -8,3 +8,5 @@ Super Blackhawk z roku 1959 je zesílená verze pro náboj .44 Magnum s nežláb
 Vaquero z roku 1993 je verze s pevnými mířidly a tradičním vzhledem westernového revolveru, určená zejména pro westernovou střelbu (cowboy action shooting). New Vaquero z roku 2005 má menší rám, který rozměry i úchopem více odpovídá Coltu SAA, a vyrábí se hlavně v ráži .357 Magnum a .45 Colt. Revolvery jsou ocelové černěné nebo nerezové a vyrábějí se v Newportu v New Hampshiru.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Střílíte s Blackhawkem, Super Blackhawkem nebo Vaquerem – na terče, ve westernové střelbě, nebo i na lovu? Podělte se o zkušenosti s rážemi a výměnnými válci a o tom, co vás na jednočinném revolveru baví.

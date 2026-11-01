@@ -6,3 +6,5 @@ Walther TPH (Taschenpistole mit Hahn) a malorážkové verze pistolí PP a PPK j
 PP (Polizeipistole) z roku 1929 a kratší PPK (od roku 1931) se vedle velkorážových verzí .32 ACP a .380 ACP vyráběly i v ráži .22 LR jako výcvikové a sportovní zbraně; konstrukčně jsou shodné s velkorážovými verzemi, s ocelovým rámem a závěrem. Dnes nabízí Walther (Umarex) samostatně licenční malorážkovou PPK/S .22 s rámem a závěrem ze slitiny, určenou hlavně k rekreační střelbě. Starší malorážkové PP, PPK a TPH z německé výroby jsou vyhledávané sběratelské kusy.
 
 Oficiální stránky výrobce: [www.carl-walther.de](https://www.carl-walther.de)
+
+Pochlubte se svými TPH nebo malorážkovými PP a PPK, zvlášť staršími kusy z německé výroby. Napište, jak se s nimi střílí, a případně jak jste spokojeni s novou PPK/S .22.

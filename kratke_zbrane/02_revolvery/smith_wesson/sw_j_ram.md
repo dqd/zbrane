@@ -8,3 +8,5 @@ Model 36 je klasický ocelový revolver, Model 37 jeho lehká verze Airweight s 
 Bodyguard 38 z roku 2014 je samostatná konstrukce velikostí odpovídající J-rámu, s horní částí rámu z hliníkové slitiny, polymerovou rukojetí, spouští DAO a integrovaným laserem. Revolvery J-rámu jsou dodnes standardem záložní zbraně amerických policistů a pro skryté nošení.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Který J-rám nosíte – klasický Model 36, oblíbený 642 se skrytým kohoutem, nebo lehký 340 pro .357 Magnum? Podělte se, v jakém pouzdře ho nosíte, jak zvládáte zpětný ráz lehkých verzí a zda dáváte přednost vnějšímu kohoutu.

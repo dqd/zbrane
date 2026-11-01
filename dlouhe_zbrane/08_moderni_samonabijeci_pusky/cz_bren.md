@@ -8,3 +8,5 @@ Nástupce CZ Bren 2, představený kolem roku 2016, je výrazně lehčí, použ�
 Bren 3, poprvé představený v roce 2024 na veletrhu Eurosatory, je další generace s ergonomií a ovládáním po vzoru AR-15/M16, vyšší životností a modulárností; prvním státem, který jej oficiálně zavedl, je Černá Hora. Pro civilní trh vyrábí CZ samonabíjecí verze (Bren 2 Ms) v rážích 5,56×45 / .223 Rem a 7,62×39.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Střílíte s civilním Bren 2 Ms? Napište, kterou ráži a délku hlavně jste zvolili a jak jste spokojeni. Rádi si přečteme i zkušenosti ze služby s CZ 805, Bren 2 nebo PPS a první dojmy z Bren 3.

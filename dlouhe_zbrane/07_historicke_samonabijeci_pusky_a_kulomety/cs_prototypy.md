@@ -6,3 +6,5 @@ Téma zahrnuje československé samonabíjecí pušky z období mezi 20. a 40. l
 Na Holkovu práci navázal Josef Koucký, jehož ZK 391 z roku 1939 (nástupce ZK 381) měla zcela jiný závěrový mechanismus; různé modifikace se za okupace nabízely německé vojenské správě, zkoušely se v Itálii a předváděly na Slovensku, sériově se ale nevyráběly. Z této řady vycházela poválečná ZK 420 (ZK 420 S), plynová samonabíjecí puška nabízená kromě 7,92×57 i v dalších vojenských rážích a testovaná v několika zemích; ani ona však nebyla přijata do výzbroje a ČSLA nakonec zavedla samonabíjecí pušku vz. 52.
 
 Dochované kusy těchto prototypů jsou vzácné a objevují se hlavně ve vojenských muzeích (např. VHU Praha) a v aukcích, kde dosahují vysokých cen. Pro historii české zbraňové konstrukce jsou však důležité jako přímí předchůdci poválečných samonabíjecích zbraní.
+
+Viděli jste některý z těchto prototypů naživo, třeba ve VHU, nebo máte k ZH-29, ZK 391 či ZK 420 S dobové dokumenty a fotografie? Sdílejte je tady – k historii brněnských samonabíjecích pušek se hodí každý střípek.

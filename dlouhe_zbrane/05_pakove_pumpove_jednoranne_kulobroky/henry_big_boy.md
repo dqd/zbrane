@@ -8,3 +8,5 @@ Mechanismus je klasický pákový se závěrem ovládaným lučíkem, kohoutem n
 Klasické verze mají masivní pouzdro z mosazi (Brass) a osmihrannou hlaveň, varianty Big Boy Steel a další ocelové modely ocelové pouzdro s černěním, pažby jsou z amerického ořechu. Vyrábí se hlavně v rážích .44 Magnum / .44 Special, .357 Magnum / .38 Special, .45 Colt a .41 Magnum, existují i provedení s kratší hlavní a kulatou hlavní. Big Boy All Weather je provedení pro náročné podmínky s tvrdě chromovanými kovovými díly a pažbou s odolnou povrchovou úpravou, s bočními plnicími dvířky; nabízí se v rážích .44 Magnum, .45 Colt a .357 Magnum. Zbraň je oblíbená pro westernovou střelbu, rekreační střelbu i lov na kratší vzdálenosti.
 
 Oficiální stránky výrobce: [www.henryusa.com](https://www.henryusa.com)
+
+Střílíte s Henry Big Boy, třeba v páru s revolverem stejné ráže? Napište, kterou verzi máte – mosaznou Classic, Steel nebo All Weather – a jak se vám osvědčilo plnění zepředu oproti bočním dvířkům.

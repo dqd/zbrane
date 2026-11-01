@@ -8,3 +8,5 @@ CZ 700 M1 je čistě účelová konstrukce s vlastním závěrovým systémem, t
 Hlavní rozdíl mezi nimi je tedy v tom, že CZ 700 je specializovaná konstrukce, zatímco CZ 750 je odstřelovačská úprava osvědčeného loveckého systému. V nabídce výrobce obě postupně nahradila puška CZ TSR.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Setkali jste se s CZ 700 M1 nebo CZ 750 Sniper ve službě či na soutěžích? Napište, jak se v praxi liší účelová sedmistovka od upraveného systému 550 a jestli byste dnes některou z nich koupili z druhé ruky.

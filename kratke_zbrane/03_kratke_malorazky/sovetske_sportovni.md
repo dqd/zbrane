@@ -6,3 +6,5 @@ Téma zahrnuje sovětské terčové pistole pro sportovní střelbu, vyráběné
 Pistoli IŽ-35 zkonstruoval V. A. Jarygin v 70. letech, sériově se vyráběla od roku 1978 a v roce 1979 nahradila starší sportovní pistole; jde o ocelovou pistoli s dynamickým závěrem, pevnou hlavní, zásobníkem pro 5 nábojů .22 LR v rukojeti a stavitelnou spouští, určenou pro disciplíny ISSF na 25 m. Modernizovaná IŽ-35M se dodnes vyskytuje na střelnicích a pod označením Walther KSP 200 se prodávala i v západní Evropě; IŽ-34 byla její verze pro .22 Short.
 
 TOZ-35 je jednoranná volná pistole z Tuly pro disciplínu na 50 m s výkyvným blokovým závěrem ovládaným pákou, anatomickou rukojetí a velmi lehkou napínací spouští. Hlavní rozdíl je v určení: Margolin jako univerzální výcviková pistole, IŽ-35 jako standardní a sportovní pistole, TOZ-35 jako specializovaná jednoranná zbraň pro libovolnou pistoli.
+
+Stříleli jste někdy z Margolina, IŽ-35M nebo volné pistole TOZ-35? Napište, jak se s nimi střílí dnes, kde sháníte díly a jestli má někdo ve sbírce verzi MCU pro .22 Short.

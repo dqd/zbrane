@@ -8,3 +8,5 @@ Původní ráží byla 7,65 Parabellum, pro německou armádu však Luger vyvinu
 Kromě DWM pistoli vyráběla státní zbrojovka v Erfurtu, v meziválečném období Simson a Krieghoff a od 30. let firma Mauser v Oberndorfu, která ji dodávala až do počátku 40. let, kdy ji nahradila Walther P38. Erma ze Erfurtu proslula výměnnými malorážkovými vložkami pro výcvik s P08 a později pistolemi .22 LR napodobujícími Luger.
 
 Pistoli zavedlo Švýcarsko (1900), německé námořnictvo (1904) a armáda (1908), dále například Nizozemsko, Portugalsko či Bulharsko. Celkem bylo vyrobeno přes dva miliony kusů; dnes jde o vyhledávaný sběratelský artikl, u něhož rozhoduje výrobce, rok a shoda čísel dílů.
+
+Jaké Parabellum máte ve sbírce? Napište, od kterého výrobce a z kterého roku je, jestli souhlasí čísla dílů a co se vám podařilo zjistit o jeho historii – a samozřejmě i jak se s ním střílí.

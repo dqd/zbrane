@@ -8,3 +8,5 @@ Brokovnice je zlamovací: po stisknutí uzávěrové páky se hlavně sklopí do
 V USA se brokovnice prodávala přes dovozce Century Arms, nové kusy jsou dnes dostupné hlavně v Kanadě. Zpracování odpovídá nízké ceně, ale jednoduchá konstrukce je spolehlivá.
 
 Oficiální stránky výrobce: [www.norinco.com.cn](http://www.norinco.com.cn)
+
+Používáte JW 2000 ve westernové střelbě, nebo ji máte jako levnou kohoutovou dvojku na doma? Napište, jakou délku hlavní máte, kolik toho vydržela a co jste na ní případně upravovali.

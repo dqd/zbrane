@@ -8,3 +8,5 @@ OSP je odvozená pistole pro olympijskou rychlopalbu v ráži .22 Short s lehč�
 KSP 200 je zvláštní případ – nejde o vlastní konstrukci Walther, ale o sovětsko-ruskou pistoli Baikal IŽ-35 s nově tvarovanou rukojetí, prodávanou pod značkou Walther; má zásobník pro 6 nábojů .22 LR v rukojeti. Používala ji mimo jiné švédská armáda k výcviku, kde ji později nahradily pistole Pardini SP a Walther SSP. Pistole GSP a OSP patří k nejúspěšnějším sportovním zbraním své doby.
 
 Oficiální stránky výrobce: [www.carl-walther.de](https://www.carl-walther.de)
+
+Závodí někdo s GSP, OSP, SSP nebo KSP 200? Napište, jak se vám osvědčily na 25 m, zda jste GSP přestavovali na .32 S&W Long Wadcutter a jak si KSP 200 stojí vedle původní IŽ-35.

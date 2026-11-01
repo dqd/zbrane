@@ -6,3 +6,5 @@ SCCY CPX-1 a CPX-2 jsou levné kompaktní pistole americké firmy SCCY Industrie
 Obě verze jsou v ráži 9×19 s dvouřadým zásobníkem na 10 nábojů, který při malých rozměrech zbraně nabízí na svou dobu slušnou kapacitu. Rozdíl mezi modely spočívá v pojistce: CPX-1 má manuální pojistku na rámu, CPX-2 je bez ní a spoléhá jen na dlouhý chod spouště.
 
 Pozdější verze dostaly upravenou spoušť, mířidla a závěr připravený pro kolimátor; odvozen byl i model CPX-3 v ráži .380 ACP a pistole DVG-1 s úderníkem. Pistole SCCY jsou známé nízkou cenou a doživotní zárukou, kritizována bývá těžká spoušť a jednodušší zpracování.
+
+Máte CPX-1 nebo CPX-2? Podělte se, jak zvládáte těžkou DAO spoušť, jak pistole drží po větším počtu nastřílených ran a jestli jste někdy využili doživotní záruku.

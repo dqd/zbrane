@@ -10,3 +10,5 @@ Do roku 1945 se vyráběly v Zella-Mehlis a používala je německá policie, we
 PPK/S vznikla v roce 1968 kombinací rámu PP a závěru PPK, aby splnila americké dovozní předpisy; v USA ji pak vyráběly firmy Interarms, Smith & Wesson a dnes Walther Arms. Poválečné verze sloužily u řady policejních sborů, včetně západoněmecké policie.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+Máte předválečnou PP nebo PPK ze Zella-Mehlis, licenční Manurhin, poválečný kus z Ulmu nebo americkou PPK/S? Napište, jaké značení nese, co se vám podařilo zjistit o jeho historii a jak se s ním dnes střílí.

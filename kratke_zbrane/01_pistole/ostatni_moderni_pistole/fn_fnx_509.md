@@ -8,3 +8,5 @@ Téma zahrnuje tři generace polymerových pistolí skupiny FN Herstal, vyrábě
 FN 509 z roku 2017 je naproti tomu pistole s úderníkem odvozená od FNS a vyvinutá pro soutěž americké armády na novou pistoli (MHS); základní verze má zásobník na 17 nábojů 9×19 a existují verze Compact, Midsize, Tactical a sportovní LS Edge. Pistole FN používají některé policejní sbory v USA i v dalších zemích.
 
 Oficiální stránky výrobce: [FN Herstal](https://www.fnherstal.com), [FN America](https://fnamerica.com)
+
+Kterou z pistolí FN používáte – kohoutovou FNP či FNX, nebo úderníkovou 509? Podělte se o zkušenosti ze střelnice, a pokud máte FNX-45 Tactical, jak se osvědčila s kolimátorem či tlumičem.

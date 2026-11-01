@@ -8,3 +8,5 @@ LCP Custom je provedení původní LCP s červenou spouští a vylepšenými mí
 LCP MAX z roku 2021 si zachovává podobné rozměry, ale díky zásobníku s přechodem ze dvou řad do jedné pojme 10 nábojů .380 ACP (prodloužený zásobník 12) a má lépe viditelná mířidla. Všechny verze se vyznačují hmotností kolem 300 g, za cenu krátké hlavně a poměrně ostrého zpětného rázu, a jsou určeny především jako záložní nebo hluboce skrytá zbraň pro sebeobranu na krátkou vzdálenost.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+LCP, LCP II, nebo LCP MAX – kterou nosíte v kapse? Napište, jak se střílí s pistolí kolem 300 g, jak hodnotíte rozdíl mezi spouští původní LCP a LCP II a v čem ji nosíte.

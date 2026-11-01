@@ -6,3 +6,5 @@ PSM (Pistolet samozarjadnyj malogabaritnyj) je sovětská malá samonabíjecí p
 Pracuje na principu dynamického závěru s pevnou hlavní a má spoušť DA/SA s vnějším kohoutem a pojistkou na závěru, která vybíjí kohout. Charakteristická je mimořádně plochá konstrukce o šířce kolem 18 mm, bez vyčnívajících ovládacích prvků. Rám i závěr jsou ocelové. Pistole používá speciální náboj 5,45×18 se špičatou ocelovou střelou, který přes malou ráži dosahuje dobré průbojnosti. Jednořadý zásobník pojme 8 nábojů.
 
 Sériově se vyráběla v Iževském mechanickém závodě (Ižmech) od poloviny 70. let přibližně do konce 90. let či počátku 21. století, prameny se v přesných letech rozcházejí. IŽ-75 (později MP-75) je civilní a exportní verze ve stejné ráži 5,45×18. Pro zahraniční trh vznikla v 90. letech také verze Baikal-441 (MP-441) v ráži 6,35 Browning, která má nastavitelná mířidla.
+
+Máte PSM, civilní IŽ-75, nebo Baikal-441 v 6,35 Browning? Podělte se, jak se nosí tak plochá pistole, jak se s ní střílí a kde sháníte střelivo 5,45×18.

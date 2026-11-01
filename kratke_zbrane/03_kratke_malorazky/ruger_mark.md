@@ -8,3 +8,5 @@ Mark II (od roku 1982) přinesl záchyt závěru a desetiranný zásobník, Mark
 Řada 22/45 (od roku 1992) má polymerový rám rukojeti se sklonem a ovládáním podobným pistoli Colt 1911, takže slouží i jako levný trenažér pro majitele „jedenáctistovek“; vyrábí se ve verzích Mark III a Mark IV i v odlehčeném provedení Lite s hliníkovým pouzdrem. Pistole Ruger Mark patří k nejrozšířenějším sportovním malorážkám světa.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Ruger Mark má u nás hodně majitelů – kterou generaci máte vy? Napište, jak jste se poprali s rozebíráním starších verzí, kterou hlaveň doporučujete na terč a jak se 22/45 osvědčila jako trenažér k 1911.

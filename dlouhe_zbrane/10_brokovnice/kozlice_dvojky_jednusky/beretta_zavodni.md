@@ -8,3 +8,5 @@ Závodní kozlice italské firmy Beretta z Gardone Val Trompia jsou určené pro
 DT 10 Trident, uvedená kolem roku 2000, má mohutnější a tužší rám a vyjímatelný spoušťový mechanismus s vinutými pružinami, který lze bez nářadí vyjmout a vyměnit za náhradní – což na závodech umožňuje rychlou opravu nebo výměnu za jinak nastavenou spoušť. V nabídce ji později nahradila DT 11. Hlavní rozdíl mezi oběma řadami je tedy v konstrukci rámu a spouště: 682 je lehčí klasika s pevně vestavěnou spouští, DT 10 těžší špičková závodní zbraň s vyjímatelnou spouští. Samonabíjecí trapová Beretta UGB25 Xcel má samostatné téma.
 
 Oficiální stránky výrobce: [www.beretta.com](https://www.beretta.com)
+
+Střílíte trap, skeet nebo sporting s 682 Gold E či s DT 10 Trident? Zajímá nás hlavně, jak se obě konstrukce liší v praxi a zda jste vyjímatelnou spoušť DT 10 na závodech někdy opravdu ocenili.

@@ -8,3 +8,5 @@ Zásobník pojme podle provedení 4 až 5 nábojů, nábojová komora je pro ná
 Kromě JW 2005 vyrábí Norinco i další pumpové brokovnice, nejznámější je kopie Remingtonu 870 prodávaná pod označeními HP9-1 nebo Hawk 982. Dvouhlavňová JW 2000 má vlastní téma mezi dvojkami. Na evropský trh se zbraně Norinco dostávají přes místní dovozce a jejich dostupnost se v čase mění.
 
 Oficiální stránky výrobce: [www.norinco.com.cn](http://www.norinco.com.cn)
+
+Koupil někdo JW 2005 jako levnou pumpu pro domácí obranu nebo rekreační střelbu? Napište, jak obstála po pár stovkách nábojů a zda byste ji znovu zvolili místo dražší značky.

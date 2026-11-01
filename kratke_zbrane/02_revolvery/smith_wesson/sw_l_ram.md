@@ -8,3 +8,5 @@ Model 581 (Distinguished Service Magnum) je černěný ocelový revolver s pevn�
 Model 986 z dílny Performance Center je specializovaný revolver v ráži 9×19 s nerezovým rámem, titanovým válcem na 7 nábojů nabíjených v půlměsíčkových sponách (moon clips) a hlavní s plnou lištou; je určen zejména pro sportovní střelbu.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Střílíte s 586, 686 nebo 686 Plus, třeba v revolverové kategorii praktické střelby? Podělte se o zkušenosti se sedmiranným válcem, s úpravami spouště a o tom, zda by vás lákal Model 986 v 9×19 na sponách.

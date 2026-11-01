@@ -8,3 +8,5 @@ Model 80 je základní služební revolver v ráži .38 Special s pevnými míř
 Revolvery Taurus jsou oblíbené pro nízkou cenu a slušnou funkčnost, kvalita zpracování a lícování mechanismu se však mezi jednotlivými kusy a obdobími výroby liší.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Jak jste spokojeni se svým Taurusem 65, 66 nebo 669? Zajímá nás, jak se osvědčil v .357 Magnum, z jakého období výroby pochází a jak je na tom lícování mechanismu.

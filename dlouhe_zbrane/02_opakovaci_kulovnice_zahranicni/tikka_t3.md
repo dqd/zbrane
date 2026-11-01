@@ -10,3 +10,5 @@ T3x přinesla zvětšené výhozné okénko, ocelovou zarážku zpětného rázu
 Varianty se liší hlavně pažbou a hlavní: Lite a Hunter jsou základní lovecké verze se syntetickou nebo dřevěnou pažbou, Varmint a Super Varmint mají těžkou hlaveň, Ace (Game, Target) sportovní nastavitelnou pažbu a T3x TAC A1 je taktická a long range verze s hliníkovým lůžkem, sklopnou nastavitelnou pažbou, lištami a dvouřadým zásobníkem na 10 nábojů, používaná i některými policejními jednotkami.
 
 Oficiální stránky výrobce: [www.tikka.fi](https://www.tikka.fi)
+
+Tikku T3 nebo T3x potkáte v revíru i na střelnici často – jakou variantu a ráži máte vy? Napište, zda jste přecházeli ze starší T3 na T3x a jak se vám osvědčil jednořadý zásobník oproti desetirannému dvouřadému.

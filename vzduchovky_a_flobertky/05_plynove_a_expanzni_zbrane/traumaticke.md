@@ -6,3 +6,5 @@ Traumatické pistole jsou krátké palné zbraně určené k sebeobraně, které
 Většina traumatických pistolí vychází z běžných pistolí – pracuje s neuzamčeným dynamickým závěrem a hlaveň má zúžení nebo překážky, které znemožňují střelbu ostrým střelivem. Typickými příklady jsou ruská MP-79-9TM odvozená od pistole Makarov, slovenské Grand Power T10 a T12 pro ruský trh nebo zvláštní ruské pistole Osa s elektrickým odpalováním nábojů z pevného bloku hlavní.
 
 Nejběžnějšími rážemi jsou 9 mm P.A. Rubber (vychází z plynového náboje 9 mm P.A.K.), 10×22T a 10×28T, u Osy 18,5×55T. Diskutuje se zde i o CZ 83 v provedení pro náboj 9 mm P.A. Rubber, odvozeném od známé české kompaktní pistole z Uherského Brodu, která je původně komorována pro 7,65 Browning, 9 mm Browning krátký a 9×18 Makarov. Rozdíly mezi typy spočívají hlavně v ráži a energii střely, kapacitě zásobníku a tom, zda jde o upravenou ostrou pistoli, nebo o zbraň navrženou od počátku jako traumatickou.
+
+Setkali jste se s traumatickými pistolemi, třeba MP-79-9TM, Grand Power T10 nebo CZ 83 v 9 mm P.A. Rubber? Napište, jaké s nimi máte zkušenosti a co si myslíte o jejich obranném účinku.

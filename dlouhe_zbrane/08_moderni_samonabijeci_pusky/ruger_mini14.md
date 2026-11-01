@@ -8,3 +8,5 @@ Základní ráží je .223 Rem / 5,56×45 NATO, vyráběly se i verze v 6,8 SPC 
 Mini-14 používaly kromě civilních uživatelů i americké policejní, vězeňské a další služební složky; pro ně existovala i verze AC-556 s možností střelby dávkou. Oproti platformě AR-15 je Mini-14 vzhledově i ergonomicky „lovecká“, což jí v řadě zemí usnadňuje civilní držení, za její slabinu se v minulosti považovala nižší přesnost, kterou novější série s těžšími hlavněmi zčásti odstranily.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Používáte Mini-14 nebo Mini-30 v revíru či na střelnici? Napište, jakou verzi máte – Ranch Rifle, Tactical, nebo Target –, jakou přesnost z ní dostanete a jak jste spokojeni se zásobníky Ruger.

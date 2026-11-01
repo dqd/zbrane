@@ -10,3 +10,5 @@ PC Charger je pistolová verze s krátkou hlavní (kolem 6,5 palce) a úchytem p
 Starší Ruger PC9 a PC4 (Police Carbine) se vyráběly přibližně v letech 1996–2006 v rážích 9×19 a .40 S&W; měly klasickou syntetickou pažbu, ocelové pouzdro a používaly zásobníky pistolí Ruger P-series. S dnešní PC Carbine je spojuje jen koncepce, nikoli konstrukce.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Střílíte s PC Carbine, PC Chargerem nebo novější LC Carbine v 5,7×28? Podělte se o zkušenosti s rozkládáním, s výměnnými šachtami pro zásobníky Glock a s tím, jak si karabina vede na střelnici či na soutěžích.

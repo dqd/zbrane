@@ -8,3 +8,5 @@ Vyrábějí se v ráži .22 Short, .22 LR a .22 WMR (Magnum) s hlavněmi od zhru
 Pistole NAA Guardian je naopak malá samonabíjecí kapesní pistole z nerezové oceli s dynamickým závěrem, skrytým kohoutem a spouští DAO. Základní verze v ráži .32 ACP má zásobník na 6 nábojů, později přibyla verze .380 ACP a verze pro firmou vyvinuté lahvovité náboje .25 NAA a .32 NAA.
 
 Oficiální stránky výrobce: [www.northamericanarms.com](https://www.northamericanarms.com)
+
+Je miniaturní revolver NAA spíš kuriozita, nebo použitelná záložní zbraň? Pokud máte mini revolver, Black Widow nebo pistoli Guardian, podělte se, jak zbraň nosíte, jak se s ní střílí a jaká ráže se vám osvědčila.

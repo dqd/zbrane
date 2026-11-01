@@ -8,3 +8,5 @@ Glock 20 (od roku 1991) v ráži 10 mm Auto má zásobník na 15 nábojů a je o
 Glock 41 je sportovní model s dlouhým závěrem v ráži .45 ACP se zásobníkem na 13 nábojů; má užší a lehčí závěr než G21, takže je celkově lehčí. Obdobou G41 v ráži 10 mm Auto je Glock 40 s dlouhým závěrem připraveným pro kolimátor. Zbraně velkého rámu se kvůli rozměrnějším nábojům vyznačují mohutnější rukojetí, která nemusí vyhovovat menším rukám.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Používáte některý z velkých Glocků v 10 mm Auto nebo .45 ACP? Zajímá nás, jak vám sedí mohutnější rukojeť, jestli berete G20 do přírody nebo na lov a jak se v praxi nosí G29, G30 či štíhlý G36.

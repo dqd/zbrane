@@ -6,3 +6,5 @@ Gamo Roadster IGT 10X Gen2 je zlamovací vzduchovka španělského výrobce Gamo
 Druhou zvláštností je opakovací systém 10X Quick-Shot: diabolky se podávají z desetiranného rotačního zásobníku vloženého do závěrové části hlavně, takže se nemusí nabíjet po jedné a po každém zlomení hlavně se do komory posune další diabolka. Vyrábí se v ráži 4,5 mm i 5,5 mm a dodává se obvykle s puškohledem. Ve srovnání s pružinovými modely Gamo Hunter 440 a Shadow 1000 je Roadster pohodlnější na střelbu a rychlejší díky zásobníku, ale také dražší a těžší; jako zlamovací zbraň s plynovou pružinou je stále výrazně jednodušší a levnější než vzduchovky PCP.
 
 Oficiální stránky výrobce: [www.gamo.com](https://www.gamo.com)
+
+Přešli jste z klasické pružinovky na Roadster IGT? Napište, jak se vám osvědčila plynová pružina, jak spolehlivě podává zásobník 10X a jakou přesnost z něj máte s dodávaným puškohledem.

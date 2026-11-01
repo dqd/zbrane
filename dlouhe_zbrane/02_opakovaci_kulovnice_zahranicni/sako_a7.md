@@ -8,3 +8,5 @@ Závěr má tři přední uzamykací ozuby, úhel otevření 70° a tlačné pod
 Kulovnice se vyráběla ve dvou délkách systému: krátký pro ráže .22-250 Rem, .243 Win, 7mm-08 Rem, .308 Win, .270 WSM a .300 WSM a střední/dlouhý pro .25-06 Rem, .270 Win, .30-06, 7mm Rem Mag a .300 Win Mag. Zpočátku se nabízela pouze se syntetickou pažbou, později přibyla i další provedení, např. odolnější Roughtech se strukturovanou syntetickou pažbou. Od výrazně dražší Sako 85 se A7 liší hlavně tlačným podáváním místo řízeného, jednodušší pažbou a nižší cenou.
 
 Oficiální stránky výrobce: [www.sako.global](https://www.sako.global)
+
+Vlastníte Sako A7 nebo Roughtech? Podělte se, jak se osvědčila na lovu, jak jste spokojeni se zásobníkem jištěným pákou Total Control Latch a jestli vám tlačné podávání oproti Sako 85 něčím chybí.

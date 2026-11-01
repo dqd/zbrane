@@ -6,3 +6,5 @@ K22 a CP22 jsou malorážkové pistole slovenské firmy Grand Power ze Slovensk�
 K22 je plnorozměrová pistole velikosti K100, verze K22S má pevná mířidla a hlaveň dlouhou zhruba 5", příbuzná K22 X-Trim má odlehčený závěr a stavitelná mířidla. CP22 je nejnovější kompaktní model postavený na rukojeti pistole P11, s hlavní 94 mm a hmotností asi 600 g; verze CP22W má delší hlaveň se závitem. Pistole Grand Power .22 se používají jako výcvikové zbraně k velkorážovým modelům, pro rekreační a sportovní střelbu a díky závitovým hlavním i s tlumičem.
 
 Oficiální stránky výrobce: [www.grandpower.eu](https://www.grandpower.eu)
+
+Používáte K22, K22S, X-Trim nebo kompaktní CP22? Napište, jak se vám osvědčily jako trenažér ke K100 či P11 a jestli má někdo zkušenosti se střelbou s tlumičem.

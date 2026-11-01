@@ -6,3 +6,5 @@ Téma zahrnuje dvě starší a konstrukčně neobvyklé pistole německé firmy 
 VP70 byla představena v roce 1970 a je považována za první sériovou pistoli s rámem z polymeru. Pracuje s neuzamčeným dynamickým závěrem, má úderníkový mechanismus s velmi těžkým dvojčinným chodem spouště a dvouřadý zásobník na 18 nábojů 9×19. Vojenská verze VP70M mohla s nasazenou pažbou-pouzdrem střílet třírannými dávkami s velmi vysokou kadencí, civilní VP70Z střílí jen jednotlivými ranami. Obě pistole se již dávno nevyrábějí a dnes patří mezi vyhledávané sběratelské zbraně.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Patří do vaší sbírky P9, P9S nebo některá z VP70? Podělte se o zkušenosti se střelbou, zvlášť s těžkou spouští VP70 a válečkovým polouzávěrem P9S, a napište, v jakém stavu vaše kusy jsou.

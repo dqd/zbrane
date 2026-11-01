@@ -8,3 +8,5 @@ Konstrukčně vychází z osvědčených principů Savage: válcový odsuvný z�
 Kulovnice se vyrábí v běžných loveckých rážích jako .223 Rem, .22-250 Rem, .243 Win, 6,5 Creedmoor, 7mm-08 Rem, .270 Win, .308 Win, .30-06 či .350 Legend. Původní Axis měla jednoduchou, poměrně tuhou spoušť; modernizovaná Axis II dostala uživatelsky seřiditelnou spoušť AccuTrigger s bezpečnostním jazýčkem a lepší pažbu. Existují i kompaktní a mládežnické verze, provedení s těžkou hlavní a sady XP dodávané z výroby s namontovaným puškohledem. Axis je oblíbená jako první kulovnice pro začínající lovce díky nízké ceně a přesnosti.
 
 Oficiální stránky výrobce: [savagearms.com](https://savagearms.com)
+
+Byla Savage Axis vaší první kulovnicí? Napište, jakou přesnost z ní máte, jestli jste přešli z původní spouště na Axis II s AccuTriggerem a jak se osvědčily sady XP s puškohledem z výroby.

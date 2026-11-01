@@ -8,3 +8,5 @@ Kolem roku 2012–2015 vyvolaly kontroverzi zprávy o posunu zásahů při zahř
 SL8 je civilní sportovní samonabíjecí puška vycházející z G36, v ráži .223 Rem, s pevnou pažbou typu thumbhole, delší hlavní, nastavitelnou lícnicí a zásobníkem na 10 nábojů; je oblíbená jako civilní obdoba G36 a sportovní zbraň. XM8 byl americký vývojový program z let 2002–2005, v němž HK pro US Army vyvinula na základě konstrukce G36 lehkou modulární pušku s několika délkami hlavně; program byl v roce 2005 zastaven a XM8 se do sériové výroby nedostala. Hlavní rozdíl mezi typy je tedy v určení – G36 vojenská zbraň, SL8 civilní sportovní a XM8 nedokončený prototyp.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Kdo střílí se SL8, ať se podělí, jak ji upravil, jak mu sedí pažba thumbhole a jak se drží přesnost při delší střelbě. Zajímají nás i zkušenosti s G36 ze služby.

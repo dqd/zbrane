@@ -8,3 +8,5 @@ Revolver má pevný rám, výklopný válec na 6 nábojů .38 Special (včetně 
 Night Cobra, uvedená o něco později, je verze určená výhradně pro skryté nošení: má kohout bez ostruhy a spoušť DAO, aby se nezachytávala o oděv, černou povrchovou úpravu a tritiovou mušku pro střelbu za šera. Na stejný mechanismus navázal i obnovený King Cobra v ráži .357 Magnum.
 
 Oficiální stránky výrobce: [www.colt.com](https://www.colt.com)
+
+Nosíte novou Cobru nebo Night Cobru? Zajímá nás, jak se šestiranný revolver v rozměrech „snubby“ osvědčil při skrytém nošení, v jakém pouzdře ho máte a jak hodnotíte spoušť s mechanismem LL2.

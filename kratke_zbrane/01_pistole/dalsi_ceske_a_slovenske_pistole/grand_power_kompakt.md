@@ -6,3 +6,5 @@ Kompaktní řada slovenské firmy Grand Power ze Slovenské Ľupče vychází z 
 Model P1 je kompaktní verze K100 v ráži 9×19 se zásobníkem na 15 nábojů a hlavní dlouhou přibližně 3,7 palce (94 mm), s výměnnými hřbety rukojeti. P11 je subkompaktní pistole pro každodenní skryté nošení s hlavní dlouhou 85 mm a kovovým zásobníkem na 12 nábojů 9×19. Modely P40 a P45 jsou postaveny na zesíleném rámu a vyrábějí se v rážích .40 S&W a .45 ACP; P45 pojme 10 nábojů. Jednotlivé modely se vyráběly v několika generacích rámu – zejména starší Mk7 a novější Mk12. Pistole Grand Power jsou známé kvalitním obráběním a dobrým poměrem ceny a výkonu, na českém trhu patří k nejrozšířenějším slovenským zbraním.
 
 Oficiální stránky výrobce: [grandpower.eu](https://grandpower.eu)
+
+Nosíte P1, P11 nebo některou z větších P40 a P45? Napište, jak se vám osvědčily při skrytém nošení, v jakém pouzdře je máte a jestli jde o starší Mk7, nebo novější Mk12.

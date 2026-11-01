@@ -8,3 +8,5 @@ SPAS-12 se vyráběl přibližně v letech 1979 až 2000, je ráže 12/70 a má 
 SPAS-15, vyráběný od 80. let zhruba do roku 2005, má rovněž přepínání mezi samonabíjecím a pumpovým režimem, ale místo trubice používá vyměnitelný schránkový zásobník na 6 nábojů a ergonomii připomínající útočnou pušku, s nosným uchem a natahovací pákou nahoře. SPAS-15 byl zaveden u italských ozbrojených sil a policie, obě zbraně používaly v omezeném počtu i další bezpečnostní složky v Evropě i jinde.
 
 Oficiální stránky výrobce: [www.franchi.com](https://www.franchi.com)
+
+Je mezi vámi majitel SPAS-12 nebo SPAS-15? Pochlubte se svým kusem a napište, jak se střílí v samonabíjecím i pumpovém režimu a zda je těžký SPAS-12 spíš sběratelský kousek, nebo použitelná zbraň.

@@ -10,3 +10,5 @@ PPQ (Police Pistol Quick Defense) z roku 2011 vychází z P99, ale místo vybíj
 Q4 a Q5 Match jsou sportovně laděné verze s hlavní 4, resp. 5 palců a přípravou pro kolimátor, varianty SF (Steel Frame) mají ocelový rám pro vyšší hmotnost a menší zdvih při střelbě. Řadu PPQ později nahradila pistole PDP.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+P99 i PPQ mají mezi střelci věrné příznivce. Kterou verzi používáte – P99 AS či QA, PPQ M1, M2, nebo sportovní Q5 Match – a jak se vám osvědčila na střelnici nebo v soutěžích?

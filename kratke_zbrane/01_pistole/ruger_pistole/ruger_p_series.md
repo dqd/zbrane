@@ -8,3 +8,5 @@ Spoušť je DA/SA s oboustrannou pojistkou na závěru, která zároveň vybíj�
 P89 je pistole v ráži 9×19 se dvouřadým zásobníkem na 15 nábojů a nástupce P85. P90 je v ráži .45 ACP s jednořadým zásobníkem na 7 nábojů a je ceněna pro dobrou přesnost. P345 z roku 2004 je štíhlejší a lehčí pistole v ráži .45 ACP se zásobníkem na 8 nábojů, která má na rozdíl od P89 a P90 polymerový rám a je vybavena indikátorem náboje v komoře. Řadu doplňovaly další typy v různých rážích a velikostech, například polymerová P95. Pistole řady P jsou dnes oblíbené na trhu s použitými zbraněmi jako levné a velmi odolné zbraně pro sebeobranu i rekreační střelbu.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Koupil někdo z vás P89, P90 nebo P345 z druhé ruky? Napište, jak je na tom váš kus po letech, jak hodnotíte přesnost P90 a zda pro vás robustnost vyváží velikost a hmotnost.

@@ -8,3 +8,5 @@ Vyškovská strojírenská firma Antreg představila klony CZ s rámem z kalené
 Czech Small Arms, známý výrobce civilních verzí vz. 58 a vz. 61, představil v roce 2017 na veletrhu IWA pistoli vz. 15 s polymerovým rámem a úderníkovým mechanismem, kterou lze rozebrat bez stisknutí spouště; zásobník pojme 18 nábojů 9×19. Celoocelová ČZ ST 9 PV ze Strakonic má vlastní téma společně s pistolemi řady TT.
 
 Oficiální stránky výrobců: [KMR](https://kmrarms.com), [Antreg](https://www.antreg.cz), [Czech Small Arms](https://www.csa.co.cz)
+
+Měl někdo v ruce některou z těchto pistolí – závodní KMR L-02 či W-02, klon od Antregu, VIG 007 Speedfire nebo CSA vz. 15? Podělte se o zkušenosti, případně o informace, co se s jednotlivými projekty dál dělo.

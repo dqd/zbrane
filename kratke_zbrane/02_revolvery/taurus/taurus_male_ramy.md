@@ -8,3 +8,5 @@ Model 85 z roku 1980 je základní revolver v ráži .38 Special s válcem na 5 
 Na přelomu tisíciletí nabízel Taurus také řadu Total Titanium s rámem, válcem i dalšími díly z titanu, mimo jiné verzi modelu 85; tyto revolvery byly velmi lehké, ale vyráběly se jen přibližně do roku 2006. Revolvery Taurus jsou populární pro nízkou cenu, kvalita zpracování však bývá proměnlivá.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Nosíte Taurus 85, 605 nebo 905 pro skryté nošení? Napište, jak jste spokojeni se zpracováním svého kusu, v jakém pouzdře revolver nosíte a jestli má někdo zkušenost s lehkými Total Titanium.

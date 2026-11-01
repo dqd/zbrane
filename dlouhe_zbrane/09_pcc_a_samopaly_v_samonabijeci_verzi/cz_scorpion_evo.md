@@ -10,3 +10,5 @@ Verze A1 je samopal s režimem střelby jednotlivými ranami i dávkou, určený
 Od roku 2023 se vyrábí i Scorpion EVO 3 S1 v ráži .22 LR s dynamickým závěrem a desetiranovým zásobníkem, s kratší i 16palcovou hlavní, který slouží jako levnější cvičná varianta se stejným ovládáním a kompatibilitou s většinou doplňků. Modernizovaná řada nese označení Scorpion 3+.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Střílíte se Scorpionem EVO 3 S1, s verzí Carbine nebo s novou malorážkou v .22 LR? Napište, jaké úpravy a doplňky používáte, jak se vám osvědčil v soutěžích a zda vidíte rozdíl u řady Scorpion 3+.

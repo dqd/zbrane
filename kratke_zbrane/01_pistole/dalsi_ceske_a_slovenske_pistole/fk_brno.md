@@ -8,3 +8,5 @@ Field Pistol pracuje na principu krátkého zákluzu se sklopnou hlavní a pevn�
 Původní Field Pistol je drahá, převážně ručně dokončovaná zbraň s kovovým rámem. V roce 2020 ji doplnila levnější pistole PSD s rámem z polymeru, která je lehčí a výkonem srovnatelná. PSD umožňuje bez nářadí během zhruba minuty vyměnit hlaveň a přejít na jinou ráži – vedle 7,5 FK (16 nábojů) také 10 mm Auto (10 nábojů), .40 S&W a 9×19 (17 nábojů). Pistoli lze doplnit sklopnou pažbičkou a závěr je připravený pro montáž kolimátoru. Řadu později rozšířily kompaktnější verze, například PSD-C s kratší hlavní.
 
 Oficiální stránky výrobce: [www.fkbrno.com](https://www.fkbrno.com)
+
+Střílel někdo z vás s Field Pistol nebo s PSD v 7,5 FK? Zajímá nás, jak se ten náboj chová na střelnici i při lovu, jak funguje tlumení zpětného rázu a jestli využíváte výměnu hlavní na 10 mm Auto nebo 9×19.

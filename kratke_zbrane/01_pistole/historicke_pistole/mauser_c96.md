@@ -8,3 +8,5 @@ Funguje na principu krátkého zákluzu hlavně, uzamčení zajišťuje výkyvn�
 Základní ráží byla 7,63 Mauser; za 1. světové války vznikla pro německou armádu verze v 9×19 Parabellum, označovaná vyřezanou červenou devítkou na střenkách („Red 9“). Pozdější model M712 Schnellfeuer z 30. let měl výměnný zásobník a umožňoval střelbu dávkou.
 
 Celkem bylo vyrobeno přibližně jeden milion kusů a v Číně, kde byla C96 mimořádně rozšířená, vznikly i četné místní kopie. Pistoli používala německá armáda, Čína, Turecko, Itálie a v různých konfliktech celá řada dalších uživatelů.
+
+Je mezi vámi majitel „Broomhandlu“? Podělte se, jestli máte verzi v 7,63 Mauser, „Red 9“, nebo některou z čínských kopií, zda k ní máte dřevěné pouzdro a jak se s ní dnes střílí.

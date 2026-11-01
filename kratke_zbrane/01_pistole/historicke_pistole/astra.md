@@ -6,3 +6,5 @@ Astra je obchodní značka španělské firmy Unceta y Compañía (později Astr
 Astra 300 je zmenšená verze stejné koncepce v ráži 7,65 Browning a 9 mm Browning krátký, kterou za 2. světové války ve větším počtu odebíralo Německo. Model 600 vznikl na počátku 40. let pro německou armádu v ráži 9×19; celé objednávky už však nebyly dodány a část kusů zůstala ve Španělsku či šla na export.
 
 Moderní řada z 90. let se od starých modelů zásadně liší: A-70 je kompaktní pistole s ocelovým rámem, jednořadým zásobníkem a uzamčením Browningovým systémem s výkyvnou hlavní v ráži 9×19 a .40 S&W, A-75 k tomu přidává spoušť s dvojím působením a A-100 je větší služební pistole s dvouřadým zásobníkem, nabízená též v .45 ACP.
+
+Má někdo ve sbírce Astru 400, 300 nebo 600, případně moderní A-70 či A-75? Napište, jaké značení a stav váš kus má, jak se s „vodní pistolí“ střílí a kde sháníte náboje 9 mm Largo.

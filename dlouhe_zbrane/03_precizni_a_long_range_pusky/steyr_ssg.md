@@ -8,3 +8,5 @@ Má neobvyklý závěr se třemi páry uzamykacích ozubů v zadní části vál
 SSG 04 z roku 2004 je modernější a cenově dostupnější konstrukce na základě loveckého systému Steyr SBS s předním uzamčením, s těžkou hlavní, syntetickou pažbou s nastavitelnou lícnicí a délkou, lištou Picatinny a dvouřadým zásobníkem. SSG 08 z roku 2008 vychází z obdobného systému, ale je uložena v lůžku z hliníkové slitiny se sklopnou nastavitelnou pažbou a lištami pro příslušenství a nabízí se i ve výkonnějších rážích jako .300 Win Mag a .338 Lapua Magnum. Hlavní rozdíl je tedy v systému: SSG 69 se zadním uzamčením a rotačním zásobníkem, SSG 04 a 08 s předním uzamčením, výkonnějšími rážemi a moderní ergonomií.
 
 Oficiální stránky výrobce: [www.steyr-arms.com](https://www.steyr-arms.com)
+
+Kdo vlastní SSG 69 se zadním uzamčením a průhledným rotačním zásobníkem, nebo modernější SSG 04 či SSG 08? Napište, jak se vám s nimi střílí a jak si stará konstrukce vede ve srovnání s novějšími.

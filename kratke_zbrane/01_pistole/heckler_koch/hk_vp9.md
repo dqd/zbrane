@@ -8,3 +8,5 @@ Pistole pracuje na principu krátkého zákluzu se sklopnou hlavní uzamykanou v
 VP40 (SFP40) je verze v ráži .40 S&W se zásobníkem na 13 nábojů. SFP9 L má prodloužený závěr a hlaveň a je oblíbená ve sportovní střelbě. Řada se dále rozšířila o verze připravené pro kolimátor, s dlouhou hlavní se závitem a o kompaktní provedení. Pistole SFP9 používají některé německé i zahraniční policejní a vojenské složky.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Jak jste spokojeni se SFP9 nebo VP40? Zajímá nás, jak vám sedí spoušť a nastavitelná rukojeť, jestli střílíte se sportovní SFP9 L a jak si pistole vede na soutěžích nebo při nošení.

@@ -8,3 +8,5 @@ V roce 2019 jej nahradil Raging Hunter, který má hlaveň s ocelovou vložkou v
 Model 444 Ultra-Lite byl odlehčený šestiranný revolver .44 Magnum s rámem z lehké slitiny. Starší Model 44 (např. provedení 44SS8 z nerezové oceli s hlavní 8 3/8″) je klasický šestiranný revolver .44 Magnum na velkém rámu s porty na hlavni, určený hlavně pro lov. Revolvery jsou nerezové nebo černěné.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Jak zvládáte zpětný ráz Raging Bullu nebo Raging Huntera v rážích jako .454 Casull či .460 S&W Magnum? Napište také, zda revolver používáte s optikou na lov, nebo jen na střelnici.

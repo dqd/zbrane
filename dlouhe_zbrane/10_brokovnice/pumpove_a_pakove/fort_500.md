@@ -6,3 +6,5 @@ Fort-500 je opakovací pumpová brokovnice ukrajinského podniku RPC Fort z Vinn
 Brokovnice vznikla koncem 90. let jako zbraň pro policii a ostrahu. Je v ráži 12 s nábojovou komorou pro náboje 12/76 (3″), trubicový zásobník pojme podle provedení 4 nebo 6 nábojů. Základní model má hlaveň dlouhou asi 51 cm (20″), celkovou délku kolem 1015 mm a hmotnost přibližně 3,8 kg.
 
 Fort-500 se vyrábí ve standardním provedení s dřevěnou pažbou, jako Fort-500A se sklopnou pažbou a Fort-500T s výsuvnou pažbou CAA; policejní verze Fort-500M má krátkou hlaveň kolem 35,5 cm, výsuvnou pažbu, pistolovou rukojeť a lišty Picatinny na pouzdru a předpažbí. Brokovnici v omezeném množství používají ukrajinská policie a bezpečnostní složky, mimo Ukrajinu je vzácná.
+
+Fort-500 je mimo Ukrajinu vzácná – setkal se s ní tu někdo? Pokud ano, napište, kterou verzi jste měli v ruce a jak obstála ve srovnání s Remingtonem 870, z něhož vychází.

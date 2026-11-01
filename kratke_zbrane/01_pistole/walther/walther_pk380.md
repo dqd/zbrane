@@ -8,3 +8,5 @@ Spoušťový mechanismus je DA/SA s vnějším kohoutem, první výstřel v dvoj
 Pistole se vyráběla v Německu v divizi sportovních zbraní firmy Walther, která je součástí koncernu Umarex. Kritiku sklízela hlavně za těžkou dvojčinnou spoušť a poměrně velké rozměry vzhledem k ráži. V roce 2023 ji nahradil model PD380.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+PK380 bývala oblíbená pro snadno natahovatelný závěr, kritizovaná naopak pro těžkou dvojčinnou spoušť a rozměry. Jak to vnímáte vy, pokud ji máte, a k čemu ji používáte?

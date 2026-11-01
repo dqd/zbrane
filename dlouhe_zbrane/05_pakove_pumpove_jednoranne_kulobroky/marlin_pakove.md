@@ -8,3 +8,5 @@ Model 336, odvozený od modelu 36 a vyráběný od roku 1948, je nejrozšířen�
 Původní výroba probíhala v North Havenu v Connecticutu, po převzetí Marlinu skupinou Remington se kolem roku 2010 přesunula do Ilionu ve státě New York, kde trpěla kolísavou kvalitou. Od roku 2020 vlastní značku firma Ruger, která výrobu obnovila v Mayodanu v Severní Karolíně, počínaje modelem 1895.
 
 Oficiální stránky výrobce: [www.marlinfirearms.com](https://www.marlinfirearms.com)
+
+Který pákový Marlin máte – 336, 444, 1894 nebo 1895 Guide Gun? Napište, k čemu ho používáte a jestli poznáte rozdíl mezi kusy z North Havenu, z Ilionu a z nové výroby pod Rugerem.

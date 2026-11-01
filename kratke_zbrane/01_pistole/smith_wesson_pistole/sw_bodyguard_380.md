@@ -8,3 +8,5 @@ První verze se dodávaly s laserovým zaměřovačem integrovaným v rámu, poz
 V roce 2024 představila S&W zcela přepracovaný model Bodyguard 2.0 s úderníkovým mechanismem (striker), plochou spouští s pojistkou ve spoušti a zásobníkem s přechodem ze dvou řad do jedné na 10 nebo 12 nábojů, volitelně s manuální pojistkou. Přes shodný název jde o zcela odlišnou konstrukci, rozměrově však zůstává ve stejné třídě kapesních pistolí a výrazně zvyšuje kapacitu oproti původnímu modelu.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Nosí tu někdo původní Bodyguard 380, případně nový Bodyguard 2.0? Zajímá nás, jak se s ní žije v kapse, jak zvládáte těžkou spoušť DAO a malá mířidla a zda se přechod na 2.0 vyplatí.

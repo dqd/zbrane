@@ -8,3 +8,5 @@ Pouzdro je ze slitiny lehkých kovů, hlaveň ocelová s vnitřním chromování
 Beretta A300 Outlander je naopak cenově dostupnější lovecká brokovnice, která vychází ze starší generace plynových brokovnic Beretta. Plynový systém je jednodušší a pomalejší než B-Link, pouzdro je rovněž z lehké slitiny, pažba plastová nebo dřevěná, ráže 12/76. Nabízí se v loveckých provedeních s maskováním nebo ořechovou pažbou, výměnnými zúženími a delšími hlavněmi; na jeho základě vznikla i levnější taktická a sportovní provedení řady A300 Ultima. Obě zbraně spojuje značka a plynový princip, liší se však konstrukční generací, rychlostí cyklu a cenou.
 
 Oficiální stránky výrobce: [www.beretta.com](https://www.beretta.com)
+
+Používáte 1301 Comp v praktické střelbě, nebo A300 Outlander na lov? Napište, jak se v praxi liší rychlost systému B-Link od staršího plynového systému a zda se příplatek za 1301 vyplatí.

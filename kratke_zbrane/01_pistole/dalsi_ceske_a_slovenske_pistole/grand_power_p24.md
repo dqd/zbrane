@@ -8,3 +8,5 @@ Na rozdíl od ostatních pistolí Grand Power nepoužívá otočnou hlaveň, ale
 Pistole používá zásobníky pistole Glock 17 a v základu pojme 17 nábojů 9×19. Závěr je připravený pro montáž kolimátoru a mířidla jsou dostatečně vysoká pro souběžné použití s kolimátorem. Sesterský model LP24 má prodloužený závěr s hlavní o délce 4,75 palce a stavitelná mířidla.
 
 Oficiální stránky výrobce: [grandpower.eu](https://grandpower.eu)
+
+P24 je na trhu teprve krátce – kdo už ji má? Podělte se o první dojmy ze spouště, z provozu se zásobníky od Glocku 17 a z kombinace mířidel s kolimátorem, případně o srovnání se sesterskou LP24.

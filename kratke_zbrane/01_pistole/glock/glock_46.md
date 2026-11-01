@@ -10,3 +10,5 @@ Rozměry a hmotnost (asi 600 g) jsou podobné Glocku 19; v ráži 9×19 pojme st
 V roce 2019 pistoli zavedla zemská policie Saska-Anhaltska jako náhradu pistolí SIG Sauer P6; šlo o první německý policejní sbor, který přijal Glock jako standardní služební zbraň. Na civilním trhu je G46 vzácností.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Glock 46 je na civilním trhu vzácností – pokud ho máte nebo jste s ním stříleli, napište, jak se otočná hlaveň projevuje na zpětném rázu a jak se vám líbí dekokovací prvek a rozborka bez mačkání spouště.

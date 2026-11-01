@@ -8,3 +8,5 @@ Základem konstrukce je vyjímatelné šasi z nerezové oceli s kompletním spou
 Pistole pracuje na principu krátkého zákluzu se sklopnou hlavní uzamykanou v okně pro vyhazování nábojnic, spoušťový mechanismus je úderníkový (striker) s pojistkou v jazýčku spouště, závěr je ocelový a z výroby připravený pro montáž kolimátoru pomocí systému adaptérových destiček pro různé typy kolimátorů. Plnorozměrová verze 4.5F má zásobníky na 17 nábojů 9×19 (zarovnaný) a 20 nábojů (s prodlouženou patkou), kompaktní 4.0C pojme 15, respektive 18 nábojů. Nabídku doplňují kombinace rámu a závěru různých velikostí, verze s kompenzátorem nebo s hlavní se závitem pro tlumič a provedení se sníženou kapacitou pro trhy s omezeními.
 
 Oficiální stránky výrobců: [Springfield Armory](https://www.springfield-armory.com), [HS Produkt](https://www.hs-produkt.hr)
+
+Echelon je na trhu od roku 2023 – zkoušel ho už někdo? Podělte se o zkušenosti s přesazováním šasi COG mezi moduly, s montáží kolimátoru přes adaptérové destičky a o to, jak si podle vás stojí vedle P320.

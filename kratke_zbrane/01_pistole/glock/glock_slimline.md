@@ -8,3 +8,5 @@ Glock 42 z roku 2014 je nejmenší pistolí značky, určenou pro náboj 9 mm Br
 V roce 2019 přibyly modely Glock 43X a Glock 48 se širší rukojetí pro zásobník na 10 nábojů 9×19, který je stále výrazně užší než dvouřadé zásobníky ostatních Glocků. Glock 43X má krátký závěr modelu 43, Glock 48 delší závěr a hlaveň zhruba v délce Glocku 19. Varianty MOS mají závěr připravený pro kolimátor a novější provedení i montážní lištu pod hlavní.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Který ze štíhlých Glocků nosíte – G42 v .380 ACP, šestiranný G43, nebo desetiranné G43X a G48? Podělte se, jak se osvědčil při každodenním nošení, v jakém pouzdře ho máte a jestli jste přešli na MOS s kolimátorem.

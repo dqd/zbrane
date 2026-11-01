@@ -6,3 +6,5 @@ K-rám je střední rám dvojčinných revolverů Smith & Wesson, vycházející
 Model 14 (K-38 Masterpiece) je terčová verze .38 Special se stavitelnými mířidly. Model 19 (Combat Magnum) z roku 1955 přinesl do K-rámu ráži .357 Magnum se stavitelnými mířidly a stal se oblíbenou služební zbraní, Model 13 je jeho obdoba s pevnými mířidly a těžkou hlavní; používala jej mimo jiné FBI. Modely 64, 65 a 66 jsou nerezové verze modelů 10, 13 a 19; Model 66 byl prvním nerezovým revolverem .357 Magnum. Slabinou K-rámu je při intenzivní střelbě lehkými náboji .357 Magnum namáhání přechodového kužele hlavně, což vedlo k vývoji silnějšího L-rámu.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Máte Model 10 s policejní minulostí, válečný Victory nebo Combat Magnum? Napište, co víte o historii svého kusu, v jakém je stavu a jak to máte se střelbou .357 Magnum z K-rámu.

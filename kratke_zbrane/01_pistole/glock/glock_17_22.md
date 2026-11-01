@@ -8,3 +8,5 @@ Glock 17 v ráži 9×19 má zásobník na 17 nábojů a vyráběl se v několika
 Glock 17L je sportovní verze s prodlouženým závěrem a hlavní, Glock 17C má v hlavni a závěru kompenzační otvory snižující zdvih zbraně. Glock 22 se od „sedmnáctky“ liší především ráží .40 S&W, mírně širším závěrem a kapacitou 15 nábojů; byl velmi rozšířen u amerických policejních sborů v době obliby náboje .40 S&W.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Sedmnáctku zná asi každý – kterou generaci používáte vy a co jste na ní upravovali? Zajímají nás i zkušenosti se sportovní G17L, kompenzovanou G17C a s G22 v .40 S&W.

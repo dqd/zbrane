@@ -10,3 +10,5 @@ Mossberg MVP z počátku 2010s se vyznačuje tím, že používá zásobníky AR
 Patriot, uvedený v polovině 2010s, je nástupce řady ATR: má drážkovanou hlaveň i válec závěru, odnímatelný schránkový zásobník a pažbu syntetickou, dřevěnou nebo laminátovou, a nabízí se v široké škále ráží od .22-250 Rem po .300 Win Mag a .350 Legend.
 
 Oficiální stránky výrobce: [www.mossberg.com](https://www.mossberg.com)
+
+Podělte se o zkušenosti s Mossbergy MVP, 100 ATR nebo Patriot – zejména jak funguje MVP se zásobníky AR-15 či AR-10, jak se osvědčila spoušť LBA a jakou přesnost z nich v revíru dostáváte.

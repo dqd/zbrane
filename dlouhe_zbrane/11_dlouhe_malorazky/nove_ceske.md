@@ -6,3 +6,5 @@ Téma zahrnuje malorážky menších českých výrobců, kteří se na trhu s p
 JK Nástroje s.r.o. je česká strojírenská firma zaměřená na přesné obrábění na CNC strojích, známá montážemi optiky a tlumiči značky JKN. Kolem roku 2025 představila vlastní zbraně: kulovnice JK S10 a JK G24 a malorážky JK B24 a JK B26. B24 je přímotažná malorážka s uzamčením do lůžka, pětiranným zásobníkem, plně stavitelnou spouští a lištou s rybinou 11 mm; B26 má otočný odsuvný závěr, integrovanou lištu Weaver a nabízí se až ve třech délkách hlavně. Obě se dodávají s ořechovou nebo laminátovou pažbou, s mířidly i bez nich a s hlavní se závitem pro tlumič.
 
 Oficiální stránky výrobců: [KalibrGun](https://kalibrgun.com), [JK Nástroje](https://www.jk-nastroje.cz)
+
+Měl už někdo v ruce SEAG 22LR Tactical od KalibrGunu nebo malorážky JK B24 a B26? Napište první dojmy – zpracování, chod závěru, spoušť a přesnost, případně jak obstojí v porovnání s malorážkami CZ.

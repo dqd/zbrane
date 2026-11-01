@@ -6,3 +6,5 @@ Krag-Jørgensen je opakovací puška s odsuvným otočným závěrem, kterou kon
 Hlavní verze se lišily ráží i konstrukcí schránky: Dánsko zavedlo pušku jako první v roce 1889 v ráži 8×58 R, USA v roce 1892 v ráži .30-40 Krag (.30 Army) a Norsko v roce 1894 v ráži 6,5×55. Vyráběla se v norské zbrojovce Kongsberg, v americkém Springfield Armory, v dánské Geværfabrikken v Kodani a zčásti v rakouském Steyru.
 
 V americké armádě, kde ji nasadily jednotky ve španělsko-americké válce a na Filipínách, ji brzy nahradila puška M1903 Springfield; Norsko pušky Krag používalo až do druhé světové války a Dánsko v různých verzích rovněž několik desetiletí. Kromě pušek vznikly karabiny pro jezdectvo, dělostřelectvo a ženisty a odstřelovací verze, zbraně jsou ceněny pro velmi hladký chod závěru.
+
+Je ve vaší sbírce Krag-Jørgensen – dánský, americký, nebo norský v 6,5×55? Napište, odkud kus pochází, v jakém je stavu, a pokud s ním střílíte, jestli potvrzujete pověstně hladký chod závěru.

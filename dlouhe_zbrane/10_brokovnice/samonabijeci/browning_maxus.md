@@ -10,3 +10,5 @@ FN SLP (Self Loading Police) je služební a taktická odnož vycházející ze 
 Browning Maxus, uvedený na konci první dekády 21. století, je lovecká a sportovní brokovnice s plynovým systémem Power Drive Gas, funkcemi Speed Load a Speed Unload pro rychlé nabíjení a vybíjení. Vyrábí se v ráži 12 s komorou 89 mm a ve 20/76, se syntetickou nebo ořechovou pažbou a tlumením zpětného rázu. Rozdíly jsou tak spíše v určení a výbavě: SX3 je lehká univerzální brokovnice, SLP služební varianta a Maxus modernější lovecká řada se zaměřením na pohodlí a ovládání.
 
 Oficiální stránky výrobců: [Browning](https://www.browning.com), [FN Herstal](https://fnherstal.com), [Winchester](https://www.winchesterguns.com)
+
+Kterou z trojice jste si vybrali vy – lehký Super X3, služební SLP, nebo lovecký Maxus? Napište, jak vám funguje s lehkými i těžkými náboji a zda využíváte Speed Load a Speed Unload.

@@ -8,3 +8,5 @@ Goldenmatic, uvedený koncem 60. let ve verzích 125, 125 SL a dalších, byl pr
 SDASS (Special Defence And Security Shotgun) je řada taktických pumpových brokovnic ráže 12 s pouzdrem z hliníkové slitiny a trubicovým zásobníkem až na sedm nábojů, vyráběná ve variantách Tactical, Combat, Compact či Ultra Short (s velmi krátkou hlavní) a licenčně i v zahraničí; Heckler & Koch ji nabízel pod označením FP6. S.A.T. 8 je taktická brokovnice ráže 12 vyvinutá na počátku 21. století pro policejní použití, s krátkou hlavní technologie Tribore a lištami pro příslušenství. Rozdíl mezi řadami tak spočívá hlavně v určení – lovecké a sportovní L4S a historický Goldenmatic proti taktickým SDASS a S.A.T. 8 – a ve způsobu přebíjení.
 
 Oficiální stránky výrobce: [www.fabarm.com](https://www.fabarm.com)
+
+Střílíte s Fabarmem? Napište, zda máte loveckou L4S, taktický SDASS či S.A.T. 8, nebo snad historický Goldenmatic, a jak jste spokojeni s hlavněmi Tribore.

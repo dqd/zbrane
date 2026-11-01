@@ -8,3 +8,5 @@ Vyrábí jednoranné, dvouranné, opakovací i víceranné flobertky v rážích
 Puškařství navíc vyvíjí zakázkové předovky malých ráží .22 a .177 a publikuje odborné články, například o přesnosti a výkonu flobertek omezených na 7,5 J. Kapacity jsou malé: dílna nevyrábí na sklad a výrobu konkrétního modelu zahajuje až po nashromáždění dostatečného počtu objednávek.
 
 Oficiální stránky výrobce: [www.torop.wz.cz](http://www.torop.wz.cz)
+
+Má někdo zkušenosti s flobertkami Torop – třeba s P07-M, derringerem D11 Buldog nebo přestavbami UB1 či UR1? Napište, jak jste spokojeni a jak dlouho jste na zbraň čekali.

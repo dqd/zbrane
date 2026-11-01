@@ -6,3 +6,5 @@ Jednušky jsou jednohlavňové jednoranné brokovnice se sklápěcí hlavní –
 Baikal IŽ-18 (později MP-18) z Iževska je bezkohoutová jednuška s ukazatelem natažení, vyráběná v rážích 12, 16, 20, 28, 32 a .410, v některých verzích i s vyhazovačem. Americké NEF (New England Firearms) a H&R (Harrington & Richardson) Pardner a Topper mají vnější kohoutek a přenosovou pojistku; vyráběly se ve Spojených státech v rážích 12 až .410. Italská Chiappa X-Caliber je lehká „survival“ jednuška, ke které se dodává sada vložných hlavní pro různé pistolové, revolverové a malorážkové náboje, takže jedna zbraň umožňuje střelbu širokého spektra střeliva.
 
 Oficiální stránky výrobce: [www.chiappafirearms.com](https://www.chiappafirearms.com)
+
+K čemu vám slouží jednuška – k výcviku psů, do auta, nebo jako první zbraň? Napište, zda máte IŽ-18/MP-18, Pardner, Topper či Chiappu X-Caliber s vložnými hlavněmi a jak jste s ní spokojeni.

@@ -8,3 +8,5 @@ Brokovnice je ráže 12 s nábojovou komorou 89 mm (3½″), takže snese všech
 Supernova je novější modernizovaná verze s ocelovou kostrou zalitou do polymeru, oddělitelnou pažbou, systémem tlumení zpětného rázu ComforTech a dalšími drobnými vylepšeními ovládání; nabízí se rovněž v loveckých i taktických provedeních. Obě zbraně se rozšířily mezi myslivce a sportovní střelce a taktické verze používají i některé policejní složky.
 
 Oficiální stránky výrobce: [www.benelli.it](https://www.benelli.it)
+
+Nova, nebo Supernova? Napište, jakou verzi používáte – loveckou s dlouhou hlavní, nebo taktickou – jak se vám osvědčilo polymerové pouzdro a zda je tlumení ComforTech u Supernovy znát.

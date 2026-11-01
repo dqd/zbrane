@@ -10,3 +10,5 @@ AW (Arctic Warfare) z počátku 90. let je klasická armádní puška v ráži .
 AICS (Accuracy International Chassis System) není samostatná puška, ale lůžko s pažbou pro osazení systémy jiných výrobců, zejména Remington 700. Kapacita zásobníků je typicky 10 nábojů v ráži .308 Win a 5 nábojů v magnumových rážích.
 
 Oficiální stránky výrobce: [www.accuracyinternational.com](https://www.accuracyinternational.com)
+
+Střílel někdo z vás s AW, AT nebo AX, případně má Remington v lůžku AICS? Napište, jak se Accuracy International osvědčuje na dlouhých vzdálenostech a jestli podle vás cena odpovídá tomu, co dostanete.

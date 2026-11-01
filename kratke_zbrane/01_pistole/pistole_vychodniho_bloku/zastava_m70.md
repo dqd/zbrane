@@ -8,3 +8,5 @@ Pracuje na principu dynamického (neuzamčeného) závěru s pevnou hlavní, má
 M70 byla standardní služební zbraní jugoslávské milice (policie) a po rozpadu Jugoslávie ji dále používaly bezpečnostní složky nástupnických států. Pro svou spolehlivost, jednoduchost a dobrou dostupnost je oblíbená i na civilním trhu jako levná pistole pro rekreační střelbu nebo sběratelský kus. Zastava ji v ráži 7,65 mm dodnes nabízí ve svém civilním programu. Nezaměňovat s pistolí M70A, což je větší pistole v ráži 9×19 odvozená od M57.
 
 Oficiální stránky výrobce: [www.zastava-arms.rs](https://www.zastava-arms.rs)
+
+Máte M70 v 7,65 Browning, nebo vzácnější verzi v .380 ACP? Napište, jestli jde o bývalou služební zbraň, nebo kus z civilní výroby, a jak se vám s ní střílí.

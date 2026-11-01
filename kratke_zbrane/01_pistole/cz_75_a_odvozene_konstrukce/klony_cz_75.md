@@ -8,3 +8,5 @@ Do tématu patří pistole zahraničních výrobců, které přebírají konstru
 Čínský státní koncern Norinco vyráběl kopie NZ 75 (napodobenina původní CZ 75) a NZ 85 (kopie CZ 85 s oboustranným ovládáním pojistky a záchytu závěru), které se v 90. letech exportovaly hlavně jako levná alternativa originálu. Kvalita klonů se výrazně liší – od špičkových Sphinxů po levné čínské kopie s horším zpracováním; kompatibilita zásobníků a dílů s originálními CZ 75 není u všech klonů zaručena.
 
 Oficiální stránky výrobců: [Sarsılmaz](https://www.sarsilmaz.com), [Norinco](http://www.norinco.com.cn)
+
+Kdo má doma Sphinx, Sarsılmaz K12 Sport nebo některou z čínských NZ 75 či NZ 85? Podělte se o zkušenosti s kvalitou zpracování a napište, jestli vám do nich pasují zásobníky a díly z originální CZ 75.

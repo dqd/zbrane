@@ -8,3 +8,5 @@ Mechanismus využívá vačku snižující tření, díky níž má spoušť DAO
 Základní ráže je .38 Special +P s válcem na 5 nábojů, verze pro .357 Magnum má kvůli vyššímu namáhání rám z nerezové oceli a je těžší. Existují i verze v ráži 9×19 (nabíjená ve sponách), .327 Federal, .22 WMR a .22 LR s větším počtem komor. Označení KLCR odpovídá Rugerovu značení nerezových provedení. Hlaveň je obvykle krátká, kolem 1,9″. LCR je určen především pro skryté nošení a sebeobranu.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Nosíte LCR nebo LCRx? Zajímá nás, jak se vám osvědčil při skrytém nošení, jak hodnotíte spoušť DAO a zda jste zvolili lehčí verzi pro .38 Special +P, nebo těžší .357 Magnum.

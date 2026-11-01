@@ -6,3 +6,5 @@ Kozlice Beretta řady 680 z Gardone Val Trompia patří od 80. let k nejrozší�
 686 je základní řada (např. Silver Pigeon) s jednodušší rytinou, 687 je luxusnější varianta s bohatší rytinou, často s ozdobnými bočnicemi, a lepším dřevem. 692, uvedená v polovině 10. let 21. století, má o něco širší a pevnější rám, hlavně z oceli Steelium s prodlouženými kužely a u sportovních verzí stavitelnou lištu; míří hlavně na sporting, trap a skeet. 690 přenáší vylepšení řady 692 do lehčí lovecké a univerzální kozlice. 694 je nejnovější závodní řada navazující na 692, s dalšími úpravami pažby, lišty a hlavní pro sporting a trap.
 
 Oficiální stránky výrobce: [www.beretta.com](https://www.beretta.com)
+
+Která z řady 686, 687, 690, 692 a 694 je ta vaše? Napište, zda ji používáte na lov, nebo na sporting, a jak vnímáte rozdíl mezi klasickou 686 a novějšími řadami s hlavněmi Steelium.

@@ -8,3 +8,5 @@ Na rozdíl od uzamčeného závěru původní zbraně pracuje Kadet s neuzamčen
 Kromě továrních adaptérů existoval i levnější adaptér Prema z Prahy pro pistole CZ 75; jeho kvalita a spolehlivost byly podle zkušeností uživatelů proměnlivé a často vyžadoval dopasování na konkrétní pistoli. Adaptéry slouží především k levnému tréninku a sportovní střelbě s vlastní zbraní.
 
 Oficiální stránky výrobce: [www.czfirearms.com](https://www.czfirearms.com)
+
+Střílíte s Kadetem na své CZ 75 nebo se Shadow 2 Kadet? Zajímá nás, jak spolehlivě vám adaptér funguje, zda bylo nutné něco dopasovat a jakou zkušenost máte s adaptérem Prema.

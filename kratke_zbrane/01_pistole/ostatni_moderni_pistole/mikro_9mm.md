@@ -6,3 +6,5 @@ Téma zahrnuje dvě americké celokovové mikropistole v ráži 9×19, které se
 Boberg XR9 Arneho Boberga používá otočnou hlaveň a neobvyklý zpětný přívod nábojů: drápek při pohybu závěru vzad vytáhne náboj ze zásobníku dozadu a teprve poté jej podavač zvedne do komory. Komora tak leží až nad rukojetí a pistole má při stejné délce delší hlaveň než konkurence. XR9 měla rám z hliníkové slitiny, nerezový závěr, spoušť DAO a zásobník na 7 nábojů. Firmu Boberg Arms v roce 2015 koupila Bond Arms, která konstrukci přepracovala na pistoli Bullpup9.
 
 Oficiální stránky výrobce: [Bond Arms (nástupce Boberg Arms)](https://www.bondarms.com)
+
+R9 i XR9 jsou u nás vzácné – pokud některou z nich nosíte, napište, jak se s tak malou devítkou střílí, jak se u Bobergu osvědčil zpětný přívod nábojů a jaké střelivo jim sedí.

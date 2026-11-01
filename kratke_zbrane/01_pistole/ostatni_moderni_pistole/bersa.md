@@ -8,3 +8,5 @@ Thunder 9 vznikl v roce 1994 přepracováním modelu 90, kdy byla celá produkce
 Nejmladší BP9CC z 10. let 21. století je naproti tomu plochá pistole pro skryté nošení s úderníkem, polymerovým rámem, ocelovým závěrem, uzamčením výkyvnou hlavní a jednořadým zásobníkem na 8 nábojů 9×19.
 
 Oficiální stránky výrobce: [www.bersa.com.ar](https://www.bersa.com.ar)
+
+Používá tu někdo Bersu – Thunder 380, Thunder 9, nebo plochou BP9CC? Napište, k čemu ji máte, jak se osvědčila při nošení i na střelnici a jak si Thunder 380 stojí v porovnání s Waltherem PP, kterým se inspiroval.

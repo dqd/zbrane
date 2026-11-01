@@ -8,3 +8,5 @@ Obě pistole mají polymerový rám, ocelový závěr a fungují na principu kr�
 Obě pistole mají jednořadý zásobník na 6 nábojů a rozměry umožňující nošení v kapse, DB9 patří k nejlehčím pistolím 9×19 na trhu. Za to platí ostřejším zpětným rázem a omezenou ovladatelností; zvláště první série DB9 měly pověst choulostivých na typ střeliva, což výrobce řešil postupnými úpravami konstrukce. Firma později rozšířila nabídku o větší pistole a pušky typu AR-15.
 
 Oficiální stránky výrobce: [www.diamondbackfirearms.com](https://www.diamondbackfirearms.com)
+
+Nosí někdo DB9 nebo DB380 v kapse? Napište, jak se s tak lehkou pistolí střílí, jaké střelivo v ní chodí spolehlivě a jestli jste narazili na choulostivost prvních sérií DB9.

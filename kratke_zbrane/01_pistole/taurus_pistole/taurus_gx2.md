@@ -8,3 +8,5 @@ Pracuje na principu krátkého zákluzu se sklopnou hlavní, má úderníkový m
 Na rozdíl od GX4 má GX2 pod hlavní lištu Picatinny pro svítilnu nebo laser a nabízí se i ve verzi T.O.R.O. se závěrem připraveným pro montáž kolimátoru. Zatímco GX4 cílí na co nejmenší rozměry při vysoké kapacitě, GX2 klade důraz na nízkou cenu, jednoduché ovládání a pohodlnější úchop, a je tak určena spíše začínajícím střelcům.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Uvažujete o GX2 jako o první pistoli, nebo ji už máte? Napište, jak se vám s ní střílí, jak hodnotíte úchop a spoušť a zda jste sáhli po verzi T.O.R.O. s kolimátorem.

@@ -10,3 +10,5 @@ Hlavní řadu tvoří modely 14 a 15 (a nerezové 714/715) v ráži .357 Magnum 
 Firma několikrát změnila majitele a sídlo (Palmer v Massachusetts, později Norwich ve státě New York); od roku 2005 patří CZ-USA a dnes vyrábí hlavně pistole typu 1911. Výroba revolverů skončila v roce 2021 s modelem 715. Revolvery Dan Wesson jsou oblíbené ve sportovní a silhuetové střelbě.
 
 Oficiální stránky výrobce: [www.danwessonfirearms.com](https://www.danwessonfirearms.com)
+
+Máte revolver Dan Wesson s několika hlavněmi? Napište, které délky používáte, jak často je měníte a nastavujete spáru spároměrem a jak se revolver osvědčil ve sportovní nebo silhuetové střelbě.

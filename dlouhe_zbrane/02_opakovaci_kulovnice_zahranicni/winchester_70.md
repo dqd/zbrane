@@ -10,3 +10,5 @@ Historie se dělí na několik období: zbraně vyrobené do roku 1963 („pre-6
 Do roku 2006 se zbraň vyráběla v New Havenu v Connecticutu (od 80. let firmou U.S. Repeating Arms), po uzavření závodu výrobu převzala FN Herstal v Columbii v Jižní Karolíně a od roku 2013 se montuje v Portugalsku v závodě Browning Viana. Model 70 používala také námořní pěchota USA jako odstřelovačskou pušku ve druhé světové válce, v Koreji a ve Vietnamu.
 
 Oficiální stránky výrobce: [www.winchesterguns.com](https://www.winchesterguns.com)
+
+Vlastní někdo Winchester Model 70 z doby před rokem 1964, nebo střílí s novější řadou Classic? Podělte se o zkušenosti z lovu i o rozdíly mezi obdobími výroby, které jste na vlastních kusech poznali.

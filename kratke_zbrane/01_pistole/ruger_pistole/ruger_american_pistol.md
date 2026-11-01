@@ -8,3 +8,5 @@ Pistole pracuje s krátkým zákluzem hlavně a jejím sklápěním; Ruger zdůr
 Vyráběla se v ráži 9×19 se zásobníkem na 17 nábojů a v ráži .45 ACP s 10ranným zásobníkem. Kompaktní verze Compact v 9×19 má zásobník na 12 nábojů a přijímá i plné 17ranné zásobníky, existovala i kompaktní verze v .45 ACP. Později přibyla sportovní verze Competition s delším závěrem připraveným pro kolimátor. Pistole byla hodnocena jako robustní a spolehlivá, s dobře zvládnutým zpětným rázem a ergonomickým úchopem.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Používáte Ruger American Pistol, ať už plnou, Compact, nebo Competition? Zajímá nás, jestli opravdu cítíte měkčí zpětný ráz, jak vám sedí úchopové moduly a zda máte verzi s manuální pojistkou, nebo Pro.

@@ -8,3 +8,5 @@ Hlaveň má délku 406 mm, celková délka zbraně je přibližně 808 mm a hmot
 Kromě flobertové verze vyrábí ALFA-PROJ Hunter i v ostrých malorážkových rážích .22 LR a .22 WMR s delší hlavní, které jsou určené k lovu drobné zvěře a hubení škůdců. Flobertová verze slouží hlavně k rekreační střelbě a plinkingu.
 
 Oficiální stránky výrobce: [www.alfaproj.cz](https://www.alfaproj.cz)
+
+Jakou přesnost dává Alfa Hunter v 6 mm Flobert na krátkou vzdálenost? Napište, jestli střílíte kulatými, nebo špičatými střelami a zda máte zkušenost i s ostrou verzí v .22 LR či .22 WMR.

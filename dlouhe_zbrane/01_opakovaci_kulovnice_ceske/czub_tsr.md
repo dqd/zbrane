@@ -8,3 +8,5 @@ Závěr vychází z osvědčeného systému CZ 557, který byl pro taktické pou
 Volně uložená hlaveň vyrobená rotačním kováním má délku 660 mm, závit pro úsťové zařízení a standardně úsťovou brzdu. Puška se vyrábí v ráži .308 Win (7,62×51 NATO) a zásobuje se z odnímatelného dvouřadého zásobníku na 10 nábojů. Výrobce udává přesnost pod 1 MOA po celou garantovanou životnost hlavně 10 000 výstřelů.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Používáte CZ TSR na střelnici nebo ve službě? Zajímá nás, jak se v praxi drží slibovaná přesnost pod 1 MOA, jak vám sedí hliníkové lůžko se sklopnou pažbou a s jakou optikou pušku provozujete.

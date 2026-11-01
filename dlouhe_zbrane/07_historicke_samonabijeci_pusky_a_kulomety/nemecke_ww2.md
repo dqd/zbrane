@@ -8,3 +8,5 @@ FG 42 (Fallschirmjägergewehr 42) byla puška pro výsadkáře, kterou navrhl Lo
 Všechny tři zbraně používal wehrmacht, FG 42 hlavně výsadkové jednotky luftwaffe. Německá firma Sport-Systeme Dittrich (SSD) z Kulmbachu vyrábí civilní samonabíjecí repliky, mj. BD 42 podle FG 42 a BD 44 podle StG 44, které vzhledově věrně kopírují originál, ale mají upravený mechanismus pro střelbu z uzavřeného závěru pouze jednotlivými ranami. Originály G43 se na civilním trhu objevují především jako znehodnocené nebo sběratelské kusy.
 
 Oficiální stránky výrobce replik: [SSD (Sport-Systeme Dittrich)](https://ssd-weapon.com)
+
+Střílíte s replikou SSD BD 44 nebo BD 42, případně máte originální G43? Napište, jak věrně repliky působí v ruce, jak spolehlivě chodí a kde shánět střelivo 7,92×33 Kurz.

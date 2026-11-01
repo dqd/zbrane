@@ -10,3 +10,5 @@ TRG 22 má kratší systém pro náboje do délky 75 mm a vyrábí se v ráži .
 Varianty se liší hlavně pažbou: standardní provedení s pevnou pažbou, sklopná verze (Folding Stock) a novější A1 s modernizovaným lůžkem a lištami. TRG používá řada armád a policejních jednotek, mj. finská armáda (TRG 42 jako 8,6 TKIV 2000), švédská, dánská a švýcarská armáda a také české ozbrojené složky (TRG 22).
 
 Oficiální stránky výrobce: [www.sako.global](https://www.sako.global)
+
+Střílíte s TRG 22 nebo TRG 42, případně se starší TRG 21/41? Napište, jak se osvědčují na soutěžích či ve službě, jakou optiku na ně dáváte a jestli máte zkušenost s verzí A1 nebo se sklopnou pažbou.

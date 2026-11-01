@@ -8,3 +8,5 @@ TAR-21 (Tavor Assault Rifle – 21st Century) byla představena koncem 90. let a
 Pro civilní trh vyrábí IWI samonabíjecí verze Tavor SAR a X95 (v USA ve vlastní pobočce IWI US), u nichž je hlaveň prodloužena podle místních předpisů. Pušky Tavor používají vedle IDF ozbrojené síly a policejní jednotky řady zemí, mj. Indie, Ázerbájdžánu, Kolumbie či Ukrajiny, kde se licenčně vyráběla jako Fort-221. Hlavní rozdíl mezi typy je tedy v rozměrech, ergonomii a hmotnosti – X95 je kratší, lehčí a lépe ovladatelná, TAR-21 je starší a delší provedení.
 
 Oficiální stránky výrobce: [iwi.net](https://iwi.net)
+
+TAR-21, nebo X95? Napište, kterou verzi Tavoru máte, jak jste si zvykli na bullpup, jak se vám střílí z levého ramene a zda jste zkoušeli konverzi na 9×19.

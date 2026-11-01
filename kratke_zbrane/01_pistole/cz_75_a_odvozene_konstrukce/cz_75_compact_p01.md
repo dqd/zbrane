@@ -10,3 +10,5 @@ CZ 75 D Compact nahrazuje pojistku vypínačem kohoutu a má lehčí rám z hlin
 Novější P-01 Ω používá zjednodušený spoušťový mechanismus Omega. Compact Shadow Line je sportovně laděné kompaktní provedení z řady Shadow. Kompaktní „pětasedmdesátky“ jsou oblíbené pro služební i civilní skryté nošení díky kombinaci kapacity, ergonomie a odolnosti.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Nosíte Compact, D Compact nebo P-01, případně ji znáte ze služby u PČR? Zajímá nás, jak se vám osvědčila při skrytém nošení, v jakém pouzdře ji nosíte a jak vnímáte rozdíl mezi ocelovým a hliníkovým rámem.

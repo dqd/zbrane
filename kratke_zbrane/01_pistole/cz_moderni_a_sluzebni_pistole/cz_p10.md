@@ -6,3 +6,5 @@ CZ P-10 je rodina samonabíjecích pistolí s úderníkovým (striker) spoušťo
 P-10 C je kompaktní model se zásobníkem na 15 nábojů 9×19, P-10 F plnorozměrová verze se zásobníkem na 19 nábojů, P-10 S subkompaktní verze s kratší hlavní i rukojetí a kapacitou 12 nábojů a P-10 SC kombinuje subkompaktní rukojeť s delším závěrem. Varianta OR (optics ready) má závěr připravený pro kolimátor. Vedle 9×19 se P-10 vyrábí také v rážích .40 S&W a .45 AUTO (.45 ACP). Na P-10 C existují i konverzní sady, které z pistole udělají kompaktní karabinku s pažbou. P-10 se rychle rozšířila u civilních střelců i u bezpečnostních složek v ČR i v zahraničí.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Kterou velikost P-10 nosíte nebo používáte – C, F, S, nebo SC? Podělte se o zkušenosti se spolehlivostí, spouští a výměnnými hřbety, případně s verzí OR s kolimátorem či s konverzí na karabinku.

@@ -10,3 +10,5 @@ Model BD má místo pojistky vypínač kohoutu, varianta BD Police navíc indik�
 Rodina CZ 75 přesáhla již v roce 2007 milion vyrobených kusů; po roce 1989 se pistole dostaly do výzbroje AČR i PČR a používá je řada zahraničních armád a policejních sborů.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Jakou „pětasedmdesátku“ máte vy – klasickou B, BD, Omegu, nebo některé z provedení jako Retro či Stainless? Napište, k čemu ji používáte, jak dlouho vám slouží a co jste na ní případně měnili.

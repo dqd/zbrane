@@ -8,3 +8,5 @@ TAU-5 ze 70. let je jednoranná pistole na CO2 v ráži 4,5 mm, poháněná sifo
 ACZ 101 Spider od Aeron CZ je terčová pistole pro disciplínu vzduchová pistole 10 m podle pravidel ISSF, rovněž poháněná stlačeným vzduchem (PCP) s plněním na 200 barů, s hlavní Lothar Walther, stavitelnou spouští, mířidly i rukojetí a s menší verzí Junior pro mladé střelce. Hlavní rozdíl mezi typy je tedy v pohonu – starší TAU-5 a TAU-7 jsou CO2 pistole, novější TAU-8 a Spider využívají stlačený vzduch.
 
 Oficiální stránky výrobců: [Aeron CZ](https://aeron.cz), [TAU Brno](http://www.taubrno.com)
+
+Stříleli jste s TAU-5, TAU-7 nebo dnes s ACZ 101 Spider? Podělte se o zkušenosti z oddílu i ze závodů na 10 m a napište, jak se vám osvědčil přechod z CO2 na PCP.

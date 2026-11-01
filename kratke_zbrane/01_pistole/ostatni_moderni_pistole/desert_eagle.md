@@ -8,3 +8,5 @@ Vyráběla se v ráži .357 Magnum (zásobník na 9 nábojů), .44 Magnum (8 ná
 Pistole se vyráběla střídavě v Izraeli u IMI a krátce i v USA, od roku 2009 se vyrábí v Pillageru v Minnesotě; Magnum Research je dnes součástí skupiny Kahr. Jako služební zbraň se kvůli hmotnosti neprosadila, slouží hlavně ke sportovní a rekreační střelbě a lovu a proslavila se především ve filmech a hrách.
 
 Oficiální stránky výrobce: [www.magnumresearch.com](https://www.magnumresearch.com)
+
+Střílel někdo z vás s Desert Eaglem víc než pár ran na ukázku? Napište, kterou ráži máte, jak zvládáte zpětný ráz .50 AE a zda jste zkoušeli měnit ráži u Mark XIX.

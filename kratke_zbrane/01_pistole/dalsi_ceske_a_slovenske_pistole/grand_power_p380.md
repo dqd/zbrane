@@ -8,3 +8,5 @@ Rám je z polymeru, závěr ocelový, spoušťový mechanismus DA/SA s vnější
 Kompaktnější sesterský model CP380 má kratší hlaveň a zásobník na 12 nábojů. Na základě P380 vznikla i malorážková verze. P380 je vhodná pro střelce, kteří chtějí pistoli s mírným zpětným rázem a vysokou kapacitou; v zemích, kde je civilní držení vojenských ráží omezeno, slouží jako alternativa k pistolím v ráži 9×19.
 
 Oficiální stránky výrobce: [grandpower.eu](https://grandpower.eu)
+
+Používáte P380 nebo menší CP380? Napište, jak se vám s ní střílí, jak se osvědčila pro sebeobranu či skryté nošení a jestli vám ráže .380 ACP při kapacitě 15 nábojů stačí.

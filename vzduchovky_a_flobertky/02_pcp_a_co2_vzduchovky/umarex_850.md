@@ -8,3 +8,5 @@ Pohon obstarává jedna velká bombička CO2 o hmotnosti 88 g, uložená v před
 Pažba je syntetická, hlaveň ocelová drážkovaná, zbraň má lištu 11 mm pro puškohled, mířidla s optickými vlákny a dvoustupňovou stavitelnou spoušť. Verze 850 M2 přidala mimo jiné lišty Picatinny na předpažbí, rychlé odklápění krytu bombičky a závit na ústí hlavně pro tlumič; rotační zásobníky jsou podle výrobce kompatibilní i se staršími kusy. Díky vzhledu i ovládání „ostré“ opakovačky, absenci nutnosti pumpovat a slušné přesnosti je 850 oblíbená pro rekreační střelbu a trénink manipulace.
 
 Oficiální stránky výrobce: [www.umarex.de](https://www.umarex.de)
+
+Kolik výstřelů vám reálně vydrží bombička 88 g v 850 AirMagnum? Podělte se o zkušenosti s přesností RWS, Hämmerli i Umarex 850 M2 a napište, jestli jste využili závit pro tlumič.

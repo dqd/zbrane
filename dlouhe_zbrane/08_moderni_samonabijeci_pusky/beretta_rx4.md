@@ -8,3 +8,5 @@ Pracuje s plynovým systémem ARGO (Auto Regulating Gas Operated), převzatým z
 Puška používá standardní zásobníky AR-15/STANAG, takže je s nimi kompatibilní, a díky umístění plynového systému a závěru v pouzdře nepotřebuje trubici pažby s vratnou pružinou jako AR-15. Je určena hlavně civilním sportovním střelcům a lovcům, kteří chtějí pušku v ráži 5,56×45 s ovládáním a údržbou podobnou loveckým zbraním Benelli; na trhu je méně rozšířená než pušky na platformě AR-15.
 
 Oficiální stránky výrobců: [Beretta](https://www.beretta.com), [Benelli](https://www.benelli.it)
+
+Vlastní tu někdo Rx4 Storm nebo Benelli MR1? Napište, jak se v praxi osvědčuje systém ARGO, jak puška snáší různé náboje .223 Rem a zda ji používáte spíš na střelnici, nebo v revíru.

@@ -8,3 +8,5 @@ Glock 26, uvedený v polovině 90. let, je určen pro náboj 9×19 a pojme 10 n�
 Výhodou subkompaktních Glocků je možnost používat delší zásobníky větších modelů stejné ráže – například do Glocku 26 lze vložit zásobníky z G19 nebo G17 – a s prodlužovacími návleky zásobníku tak lze rukojeť přizpůsobit. Oproti jednořadým modelům řady Slimline jsou širší, ale nabízejí vyšší kapacitu.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Jak se vám střílí s krátkou rukojetí G26, G27 nebo G33? Napište, jestli používáte prodlužovací návleky či delší zásobníky z G19 a G17 – a pokud máte raritní G39 v .45 GAP, určitě se ozvěte.

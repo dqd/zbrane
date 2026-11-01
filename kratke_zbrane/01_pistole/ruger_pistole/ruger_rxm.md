@@ -10,3 +10,5 @@ Vyrábí se v ráži 9×19; základní verze s hlavní 4 palce se dodává se z�
 RXM cílí na zákazníky, kteří hledají cenově dostupnou alternativu Glocku 19 s vylepšenou výbavou a kompatibilitou s rozsáhlým trhem příslušenství, a zároveň umožňuje snadnou výměnu úchopového modulu bez zásahu do evidované části zbraně. Vzhledem k novosti modelu jsou dlouhodobé zkušenosti z provozu zatím omezené.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+RXM je na trhu krátce, takže uvítáme každou zkušenost. Jak funguje s glockovými zásobníky a díly, jak vám sedí modul Magpul a jak si vede ve srovnání s Glockem 19?

@@ -10,3 +10,5 @@ V ráži 9×19 pojme zásobník plnorozměrové verze 17 nábojů, kompaktní ve
 Delta je naproti tomu moderní pistole s polymerovým rámem a úderníkovým (striker) mechanismem. Druhá generace Delta Gen 2 se vyrábí ve velikostech M (kompaktní), L (plnorozměrová) a X (crossover, dlouhá rukojeť s kratším závěrem), se zásobníky na 15–19 nábojů 9×19, oboustranným ovládáním a závěrem připraveným pro kolimátor. Pistole Arex jsou ceněny pro dobrý poměr ceny a kvality.
 
 Oficiální stránky výrobce: [www.arex.si](https://www.arex.si)
+
+Kdo z vás střílí s Arexem? Napište, jestli máte REX Zero 1, Zero 2, nebo Deltu Gen 2, jak vám u Zero vyhovuje vypínač kohoutu spojený se záchytem závěru a kterou velikost Delty – M, L, nebo X – jste zvolili.

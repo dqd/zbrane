@@ -10,3 +10,5 @@ Versa Max z roku 2010 je novější konstrukce se systémem VersaPort: počet ak
 Remington V3 (od roku 2015) přenáší systém VersaPort do lehčí a levnější brokovnice s komorou 76 mm, vyráběné v loveckých, sportovních i taktických provedeních. V3 TAC-13 je verze s hlavní dlouhou 13 palců a krátkou rukojetí bez pažby, kterou lze v USA prodávat jako „firearm“ podobně jako pumpovou 870 TAC-14. Po krachu původní firmy v roce 2020 převzala výrobu brokovnic Remington nová společnost RemArms.
 
 Oficiální stránky výrobce: [www.remarms.com](https://www.remarms.com)
+
+Střílí někdo z vás z klasické 1100, nebo jste přešli na Versa Max či V3? Zajímá nás, jak si systém VersaPort v praxi poradí s různými náboji a jak se tyto brokovnice osvědčily na honu i na asfaltových terčích.

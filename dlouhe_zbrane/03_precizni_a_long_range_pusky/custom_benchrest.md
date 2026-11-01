@@ -8,3 +8,5 @@ Typickým základem je precizně obrobený ocelový systém s válcovým odsuvn�
 Surgeon Rifles z Oklahomy vyrábí vlastní systémy (např. Surgeon 591) a kompletní taktické pušky. HS Precision z Jižní Dakoty je známá kompozitními pažbami s hliníkovým lůžkem a puškou HTR (Heavy Tactical Rifle). Ashbury Precision Ordnance z Virginie vyrábí modulární lůžka SABER-FORSST a pušky jako ASW338LM v ráži .338 Lapua Magnum. Kelbly's z Ohia je pojmem v benchrestu díky benchrestovým systémům Stolle Panda. Do tématu patří i jednotlivě stavěné pušky evropských puškařů a prodejců, např. sortiment německého prodejce Henke (Heinz Henke), který nabízí mj. benchrestové pušky postavené na systémech Stolle Panda.
 
 Oficiální stránky výrobců: [Surgeon](https://surgeonrifles.com), [HS Precision](https://hsprecision.com), [Ashbury](https://www.ashburyprecisionordnance.com), [Kelbly's](https://kelbly.com)
+
+Postavili jste si vlastní benchrestovou nebo long range pušku, případně střílíte se systémem Surgeon, Kelbly's či Stolle Panda? Pochlubte se sestavou – systém, hlaveň, ráže, spoušť, pažba – a dosaženými skupinami.

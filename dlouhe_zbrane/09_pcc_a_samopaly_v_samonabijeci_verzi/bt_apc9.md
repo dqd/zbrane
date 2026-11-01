@@ -8,3 +8,5 @@ Pro civilní trh se vyrábí samonabíjecí verze jako pistole i karabina s del�
 GHM9 je jednodušší a levnější samonabíjecí karabina B&T určená především pro civilní střelce a policejní výcvik. Také ona pracuje s dynamickým závěrem, ale má jednodušší konstrukci s menším podílem obráběných dílů a vyrábí se ve verzích pro různé typy zásobníků, vedle vlastních B&T především pro rozšířené zásobníky Glock.
 
 Oficiální stránky výrobce: [bt-ag.ch](https://bt-ag.ch)
+
+APC9, nebo levnější GHM9? Napište, kterou karabinu B&T máte, zda používáte zásobníky B&T, nebo Glock, a jak se vám osvědčila na střelnici či v soutěžích.

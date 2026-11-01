@@ -10,3 +10,5 @@ Později se vyráběla v rážích 9×19 (zásobník kolem 16 nábojů), .40 S&W
 Ve Spojených státech pistoli dlouho prodávala firma Magnum Research pod názvem Baby Eagle, který vizuálně navazoval na Desert Eagle; od roku 2014 ji tamní pobočka IWI US nabízí opět jako Jericho. Pistoli používá mimo jiné izraelská policie a další bezpečnostní složky v řadě zemí.
 
 Oficiální stránky výrobce: [iwi.net](https://iwi.net)
+
+Vlastníte Jericho 941, Jericho 45 nebo některý americký Baby Eagle? Napište, jakou máte verzi – ocelový, nebo polymerový rám, F, nebo R – a jak si podle vás stojí ve srovnání s CZ 75.

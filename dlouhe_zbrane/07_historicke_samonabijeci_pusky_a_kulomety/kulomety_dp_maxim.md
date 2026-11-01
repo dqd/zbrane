@@ -8,3 +8,5 @@ Modernizovaný DPM z roku 1944 má vratnou pružinu přesunutou z prostoru pod h
 Maxim je naproti tomu klasický těžký kulomet konstrukce Hirama Maxima z 80. let 19. století: pracuje s krátkým zákluzem hlavně a kloubovým uzamčením, je zásobován látkovým pásem a hlaveň chladí vodní plášť. Nejznámějšími verzemi jsou ruský M1910 v ráži 7,62×54 R na kolovém podstavci Sokolov a německý MG 08 v ráži 7,92×57; Maximy používaly armády Ruska, Německa a mnoha dalších zemí v obou světových válkách.
 
 Hlavní rozdíl je tedy v kategorii zbraně – DP je lehký kulomet pro družstvo, Maxim těžký vodou chlazený kulomet. Civilní samonabíjecí verze jsou určeny hlavně sběratelům a pro ukázkovou střelbu.
+
+Talířový zásobník DP-27 i vodní plášť Maximu mají své kouzlo – pokud máte některý z těchto kulometů v samonabíjecí verzi, popište původ kusu, kvalitu přestavby a dojmy z ukázkové střelby.

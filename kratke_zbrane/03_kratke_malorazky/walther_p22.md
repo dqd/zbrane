@@ -6,3 +6,5 @@ Walther P22 a PPQ .22 jsou malorážkové pistole německé značky Walther (sku
 PPQ .22 (zejména PPQ M2 .22) je malorážková verze služební pistole PPQ s jednočinnou spouští Quick Defense, rozměry a ovládáním (tlačítkový záchyt zásobníku verze M2) odpovídá velkorážové PPQ a má zásobník pro 12 nábojů; existuje i verze SD se závitovou hlavní. Hlavní rozdíl je tedy ve velikosti a spoušti: P22 je menší pistole s DA/SA a kohoutem, PPQ .22 plnorozměrový trenažér k velkorážové PPQ.
 
 Oficiální stránky výrobce: [www.carl-walther.de](https://www.carl-walther.de)
+
+Střílíte z P22, P22Q nebo PPQ .22? Podělte se, jak jsou vybíravé na střelivo, jak se PPQ .22 osvědčila jako trenažér k velkorážové PPQ a kterou byste doporučili začátečníkovi.

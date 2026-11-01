@@ -8,3 +8,5 @@ Plnorozměrová Masada je v ráži 9×19 se zásobníkem na 17 nábojů, má vý
 Masada Slim, představená zhruba v roce 2022, není jen zmenšenou Masadou, ale samostatně navrženou plochou pistolí pro skryté nošení: má hlaveň délky 3,4″, zásobník na 13 nábojů (případně 10), závěr frézovaný přímo pro kolimátory s upevněním typu RMS Shield a hmotnost kolem 580 g bez zásobníku. Obě pistole nabízejí na svou cenovou kategorii dobrou výbavu a jsou určeny jak pro služební použití, tak pro civilní sebeobranu.
 
 Oficiální stránky výrobce: [IWI](https://www.iwi.net), [IWI US](https://iwi.us)
+
+Rozhodujete se mezi plnou Masadou a Masadou Slim, nebo už jednu z nich máte? Podělte se o dojmy ze spouště, z montáže kolimátoru a u Slim hlavně z každodenního nošení.

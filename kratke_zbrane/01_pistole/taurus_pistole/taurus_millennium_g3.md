@@ -10,3 +10,5 @@ Millennium G2 z roku 2013 má spoušť s krátkým chodem a možností opakovan�
 G3 z roku 2019 je plnorozměrná pistole se zásobníkem na 17 nábojů 9×19 a vylepšenou spouští, G3C z následujícího roku je její kompaktní verze se zásobníkem na 12 nábojů, kompatibilním s G2c. Novější provedení se nabízejí i s přípravou pro kolimátor (T.O.R.O.).
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Máte doma starou Millennium nebo G2c, případně střílíte s novou G3 či G3C? Podělte se o zkušenosti se spolehlivostí, spouští jednotlivých generací a nošením – a zda je G3C oproti G2c znatelným posunem.

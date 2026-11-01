@@ -6,3 +6,5 @@ puška, opakovací, odsuvný závěr, mauser, carl gustaf, husqvarna, švédsko,
 Puška Gevär m/96 byla zavedena v roce 1896; první série dodal Mauser z Oberndorfu, většinu produkce však zajistila státní zbrojovka Carl Gustafs stads gevärsfaktori v Eskilstuně. Kratší puška m/38, zavedená v roce 1938, se vyráběla v Carl Gustafu i u firmy Husqvarna, a to jak nově, tak přestavbou zkrácených pušek m/96. Z m/96 vycházela i odstřelovací puška m/41 s puškohledem a starší karabina m/94.
 
 Švédské Mausery jsou proslulé kvalitou oceli a zpracování, mají na pažbě typický mosazný kotouč s údaji o stavu hlavně. Ve švédské armádě sloužily až do zavedení samonabíjecích pušek a Ak 4 v 60. letech, poté ještě u domobrany (Hemvärnet); za zimní války je používali švédští dobrovolníci ve Finsku a část pušek dostala i finská armáda.
+
+Co prozrazuje mosazný kotouč na pažbě vašeho švédského Mauseru? Napište, zda máte m/96, m/38 nebo m/94, od Carl Gustafu, či od Husqvarny, a jak si vede v 6,5×55 na střelnici.

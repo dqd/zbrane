@@ -8,3 +8,5 @@ Hlavní předností je modularita: výměnou hlavně, hlavy závěru a případn
 Na systému R93 byly postaveny i taktické a sportovní verze Blaser Tactical 2 a LRS 2 s pažbou s hliníkovým skeletem, nastavitelnou lícnicí a lištou pro optiku; ty se používaly mj. u policejních jednotek a ve sportovní střelbě na dlouhé vzdálenosti.
 
 Oficiální stránky výrobce: [www.blaser.de](https://www.blaser.de)
+
+Kdo loví s Blaserem R93 nebo R8, napište, jak využíváte výměnné hlavně a kolik ráží na jednom systému máte. Zajímá nás i srovnání obou generací a to, jak si sedíte s přímotahem a ručním napínáním.

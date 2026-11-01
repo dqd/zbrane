@@ -8,3 +8,5 @@ Pracuje na principu krátkého zákluzu se sklopnou hlavní Browningova typu uza
 USP Compact je zkrácená verze, USP Expert a Elite sportovní verze s prodlouženým závěrem a hlavní, USP Match sportovní provedení se závažím pod hlavní. Mark 23 je rozměrná pistole v .45 ACP vyvinutá pro americké velitelství speciálních operací (SOCOM), s hlavní upravenou pro tlumič a montáží zaměřovacího modulu. USP v 9×19 zavedl v roce 1994 Bundeswehr jako P8. HK45, vyvinutá kolem roku 2006 pro soutěž americké armády, je novější pistole v ráži .45 ACP se zásobníkem na 10 nábojů, s ergonomií převzatou z P30 a výměnnými hřbety; HK45C je její kompaktní verze.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Která USP je vaše – standardní, Compact, Expert, Match, nebo dokonce Mark 23? Napište, jakou variantu spoušťového mechanismu jste si zvolili, jak se osvědčila a jak si podle vás stojí novější HK45.

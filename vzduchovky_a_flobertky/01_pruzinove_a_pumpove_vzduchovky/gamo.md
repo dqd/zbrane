@@ -8,3 +8,5 @@ Hunter 440 a Shadow 1000 jsou klasické zlamovací vzduchovky s pružinovým pí
 Hunter 440 má dřevěnou bukovou pažbu a je oblíbená jako cenově dostupná „univerzálka“ pro rekreační střelbu a hubení drobné havěti. Shadow 1000 má podobný pružinový pohon, ale pažbu ze syntetického materiálu, takže je lehčí, odolnější vůči vlhkosti a nenáročná na údržbu. Hlavní rozdíl mezi nimi je tedy v materiálu pažby a vzhledu, výkonem i konstrukcí jsou si velmi blízké. Gamo Roadster IGT s plynovou pružinou má vlastní téma.
 
 Oficiální stránky výrobce: [www.gamo.com](https://www.gamo.com)
+
+Hunter 440, nebo Shadow 1000? Pokud máte některou z nich, napište, jakou přesnost z ní dostanete, jaké diabolky a puškohled používáte a zda je znát rozdíl mezi dřevěnou a syntetickou pažbou.

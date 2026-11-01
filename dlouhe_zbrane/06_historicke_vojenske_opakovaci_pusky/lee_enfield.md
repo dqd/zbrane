@@ -6,3 +6,5 @@ Lee-Enfield je britská opakovací puška kombinující závěr a schránku kons
 Short Magazine Lee-Enfield No. 1 Mk III byla zavedena v roce 1907 a během první světové války zjednodušena na Mk III* (mj. bez odpojovače schránky a s jednodušším hledím). No. 4 Mk I zavedená v roce 1941 má těžší hlaveň vyčnívající z předpažbí, dioptrické hledí na pouzdru závěru, jednodušší výrobu a hrotový bodák.
 
 SMLE se vyráběla v Enfieldu, u BSA a LSA, v australském Lithgow a v indickém Ishapuru, No. 4 v britských závodech ROF Fazakerley a Maltby a u BSA, v kanadském Long Branch a v USA u firmy Savage-Stevens. Celková produkce všech verzí Lee-Enfield se odhaduje přibližně na 17 milionů kusů. Pušky tvořily základní výzbroj britské a dalších armád Commonwealthu v obou světových válkách a v dalších konfliktech; z No. 4 vycházela i odstřelovací verze L42A1 v ráži 7,62×51, v této ráži vyráběl Ishapur také pušku 2A/2A1.
+
+Majitelé SMLE a No. 4, pochlubte se svými kusy – výrobcem podle značení (Enfield, BSA, Lithgow, Ishapur, Long Branch…) a stavem. Zajímá nás i, jak se vám s nimi střílí a jak sháníte střelivo .303 British.

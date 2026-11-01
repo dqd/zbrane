@@ -8,3 +8,5 @@ Samonabíjecí verze se od samopalu liší úpravou spoušťového mechanismu, k
 Firma Czech Small Arms, která od roku 2009 obnovila výrobu vz. 61, nabízí pistoli Sa vz. 61 mimo jiné v ráži .22 LR s polykarbonátovými zásobníky a záchytem závěru po vystřelení posledního náboje. Pistolové verze Škorpionu jsou oblíbené hlavně jako rekreační a sběratelské zbraně připomínající známý samopal.
 
 Oficiální stránky výrobců: [CZ](https://www.czub.cz), [Czech Small Arms](https://www.csa.co.cz)
+
+Střílíte s pistolovým Škorpionem – Scarabeem, CZ Skorpion 61 S, nebo malorážkou od Czech Small Arms? Napište, jak si vede na střelnici, jak funguje se zásobníky a jestli ho máte spíš pro zábavu, nebo do sbírky.

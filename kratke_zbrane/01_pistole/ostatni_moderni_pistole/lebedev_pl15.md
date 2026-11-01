@@ -6,3 +6,5 @@ Lebedev PL-15 je ruská samonabíjecí pistole konstruktéra Dmitrije Lebeděva,
 Pistole funguje na principu krátkého zákluzu s Browningovým uzamčením výkyvnou hlavní, má skrytý kohout, velmi štíhlý profil, nízko položenou osu hlavně a plně oboustranné ovládací prvky. Rám je u základních verzí z hliníkové slitiny, výrobce počítal i s polymerovým provedením. Zbraň je v ráži 9×19 a je dimenzována i na ruské zesílené náboje 7N21.
 
 Plnorozměrová PL-15 má hlaveň délky 120 mm a zásobník na 15 nábojů, kompaktní PL-15K, rozměrově blízká Glocku 19, má hlaveň 92 mm, zásobník na 14 nábojů a hmotnost asi 720 g. Varianty PL-15-01 a PL-15K-01 používají úderníkový mechanismus s jednočinnou spouští s kratším chodem a nižším odporem. PL-15K byla v říjnu 2021 přijata do výzbroje ruského ministerstva vnitra.
+
+Viděl nebo střílel někdo z vás PL-15 či PL-15K? Pokud máte s touto pistolí zkušenost, zajímá nás hlavně ergonomie štíhlé rukojeti a rozdíl mezi kohoutovou a úderníkovou verzí -01.

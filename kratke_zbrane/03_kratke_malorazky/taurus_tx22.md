@@ -6,3 +6,5 @@ Taurus TX22 a PT22 jsou malorážkové pistole brazilské firmy Taurus, obě s n
 PT22 je malá kapesní pistole po vzoru Beretty 21A se sklopnou hlavní: po uvolnění páčky se hlaveň vyklopí nahoru, takže lze náboj vložit přímo do komory bez natahování závěru. Spoušť je pouze dvojčinná (DAO), zásobník pojme 8 nábojů a rám je z hliníkové slitiny. PT22 se vyráběla v Brazílii a sloužila jako levná záložní a kapesní zbraň; existovala i obdobná PT25 v ráži .25 ACP. Hlavní rozdíl je ve velikosti a určení – TX22 je moderní výcviková a sportovní pistole s vysokou kapacitou, PT22 malá kapesní zbraň.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+TX22, TX22 Compact, nebo kapesní PT22 se sklopnou hlavní – kterou máte vy? Napište, jak spolehlivě funguje, jak se střílí se šestnáctiranným zásobníkem a k čemu PT22 reálně používáte.

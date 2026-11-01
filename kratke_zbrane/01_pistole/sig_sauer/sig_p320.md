@@ -10,3 +10,5 @@ P320 se vyrábí v rážích 9×19, .357 SIG, .40 S&W, .45 ACP a 10 mm Auto; pln
 V roce 2017 vyhrála P320 americkou soutěž Modular Handgun System a armáda USA ji zavedla jako M17 (plná velikost) a M18 (kompaktní), obě s manuální pojistkou a pískově hnědým rámem. Ve stejném roce prošla civilní P320 dobrovolnou úpravou spouště kvůli bezpečnosti při pádu a v polovině 20. let se vedla diskuze o hlášených výstřelech bez stisku spouště. Vyrábí se v USA v New Hampshire a kromě amerických ozbrojených sil ji používá řada policejních sborů.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Jak jste spokojeni se svou P320 nebo starší P250? Napište, jakou konfiguraci používáte, zda jste měnili velikost či ráži a jaký máte názor na diskuze kolem bezpečnosti spouště.

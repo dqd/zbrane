@@ -8,3 +8,5 @@ Diamondback (1966–1986) je menší „Python“ na D-rámu v ráži .38 Specia
 King Cobra z roku 1986 byl nerezový revolver .357 Magnum s mechanismem typu Mk V, v roce 2019 obnovený na novém menším rámu odvozeném od Cobry. Anaconda (od roku 1990) je velký nerezový šestiranný revolver v ráži .44 Magnum (a .45 Colt), od roku 2021 vyráběný znovu v ráži .44 Magnum. Do tématu patří i replika Pietta P1955 italské firmy Pietta, která tvarově a koncepčně vychází z Pythonu.
 
 Oficiální stránky výrobců: [Colt](https://www.colt.com), [Pietta](https://www.pietta.it)
+
+Pochlubte se svým Pythonem, Diamondbackem, Trooperem nebo Anacondou – ať jde o původní kus, obnovenou verzi, nebo repliku Pietta P1955. Zajímá nás stav, provedení a hlavně to, zda je proslulá spoušť opravdu tak dobrá.

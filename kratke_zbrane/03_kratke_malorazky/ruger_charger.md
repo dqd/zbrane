@@ -6,3 +6,5 @@ Ruger Charger je samonabíjecí malorážková pistole americké firmy Sturm, Ru
 Charger byl poprvé uveden v roce 2007 s laminovanou pažbičkou a dvojnožkou; po přerušení výroby se vrátil v polovině 10. let ve verzi Takedown, kterou lze rozložit na dvě části stejně jako pušku 10/22 Takedown, později i s polymerovou pažbičkou a závitovou hlavní pro tlumič. Díky optice a dvojnožce je Charger velmi přesný na delší vzdálenosti, než je u pistolí obvyklé, a slouží hlavně k rekreační střelbě a plinkingu. Velkou výhodou je obrovská nabídka příslušenství a dílů pro platformu 10/22.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Jakou optiku a dvojnožku máte na Chargeru? Podělte se, na jaké vzdálenosti s ním střílíte a které díly z platformy 10/22 jste na něj použili.

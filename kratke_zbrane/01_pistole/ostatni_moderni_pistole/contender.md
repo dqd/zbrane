@@ -6,3 +6,5 @@ Contender je jednoranná zalamovací pistole americké firmy Thompson/Center Arm
 V roce 1998 jej nahradil Contender G2 s přepracovaným mechanismem, který umožňuje znovu natáhnout kohout bez otevření zbraně, a s upravenou rukojetí; většina starších hlavní zůstala kompatibilní, nikoli však původní pažbičky. Vedle pistolí vznikaly i karabinové verze a větší sesterský model Encore. Thompson/Center byl od roku 2007 součástí Smith & Wesson a na přelomu let 2020 a 2021 značku převzala firma Ruger.
 
 Oficiální stránky výrobce: [www.tcarms.com](https://www.tcarms.com)
+
+Kolik hlavní máte ke svému Contenderu a v jakých rážích? Podělte se o zkušenosti z lovu s krátkou zbraní nebo ze siluet, případně o rozdílech mezi původním modelem a G2.

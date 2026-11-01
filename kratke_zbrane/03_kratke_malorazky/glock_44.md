@@ -6,3 +6,5 @@ Glock 44 je malorážková pistole rakouské firmy Glock, představená koncem r
 Glock 44 slouží především k levnému výcviku majitelů velkorážových Glocků. Alternativou jsou konverzní sady na náboj .22 LR, které nahrazují závěr, hlaveň a zásobník u stávající pistole Glock – nejznámější je americká Advantage Arms (pro modely jako G17, G19, G22 či G23), existují však i další výrobci. Konverze umožňuje trénovat s vlastní zbraní a spouští, na rozdíl od G44 však bývá citlivější na typ střeliva a vyžaduje přestavbu.
 
 Oficiální stránky výrobců: [Glock](https://www.glock.com), [Advantage Arms](https://www.advantagearms.com)
+
+Trénujete s Glockem 44, nebo dáváte přednost konverzi Advantage Arms na vlastní G17 či G19? Zajímá nás, jak vám obě řešení fungují s různým střelivem a které byste doporučili na levný výcvik.

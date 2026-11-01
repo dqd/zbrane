@@ -8,3 +8,5 @@ Spoušťový mechanismus tvoří modul vkládaný do rámu zespodu, což zjednod
 GP100 z roku 1985 je jejich nástupce, navržený pro trvalou střelbu náboji .357 Magnum: má mohutnější rám, válec zajištěný vpředu západkou v konzole válce a rukojeť nasazenou na výstupku rámu, takže lze snadno měnit pažbičky. Základní válec pojme 6 nábojů .357 Magnum, novější verze 7 nábojů; GP100 se vyrábí také v ráži .22 LR, .327 Federal, .44 Special nebo 10 mm Auto. Revolvery jsou černěné nebo nerezové.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Máte GP100, nebo starší Security Six či Speed Six? Napište, jakou ráži a délku hlavně používáte, jak revolver snáší trvalou střelbu .357 Magnum a zda jste využili možnost snadno měnit pažbičky.

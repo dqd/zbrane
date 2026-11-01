@@ -8,3 +8,5 @@ Do konce druhé světové války vyrobila řada firem – mj. Inland Division (G
 Na tvar a ovládání M1 Carbine navazují i moderní civilní zbraně. Italská firma Chiappa vyrábí M1-9, karabinu s neuzamčeným dynamickým závěrem v pistolové ráži 9×19, a malorážkovou verzi M1-22. Německá Erma-Werke vyráběla ve 2. polovině 20. století malorážku EM1 v ráži .22 LR, rovněž s neuzamčeným závěrem, oblíbenou jako levnější cvičná a rekreační zbraň vzhledově věrná originálu.
 
 Oficiální stránky výrobce: [Chiappa Firearms](https://www.chiappafirearms.com)
+
+Originální M1 Carbine od Inlandu či Winchesteru, Chiappa M1-9, nebo malorážka Erma EM1? Pochlubte se, co máte, jak se s ní střílí a zda u originálu dohledáváte výrobce jednotlivých dílů.

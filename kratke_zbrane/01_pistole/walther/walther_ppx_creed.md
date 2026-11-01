@@ -8,3 +8,5 @@ Pracuje s krátkým zákluzem hlavně a uzamčením bloku komory do výhozného 
 Creed z roku 2016 je zjednodušený a ergonomicky přepracovaný nástupce PPX v ráži 9×19 se zásobníkem na 16 nábojů: má zaoblenější tvary závěru i rámu, upravenou spoušť a nižší cenu. Obě pistole byly ceněny pro spolehlivost, odolnost a dobrý poměr ceny a výkonu, kritizovány naopak pro objemnější, méně elegantní tvar a vyšší hmotnost. Výroba obou modelů již byla ukončena; na trhu je nahradily jiné modely Walther, zejména řada PDP.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+PPX a Creed nejsou žádné krasavice, zato mají pověst spolehlivých pistolí za rozumné peníze – střílíte s některou z nich? Napište, jak vám sedí dlouhý a plynulý chod spouště a jak zbraň obstála v provozu.

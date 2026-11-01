@@ -8,3 +8,5 @@ Systém B14 je klasický válcový odsuvný závěr se dvěma předními uzamyka
 Zásobování zajišťuje odnímatelný dvouřadý zásobník kompatibilní se standardem AICS, obvykle na 5 nábojů (u magnumových ráží méně). Vyrábí se mj. v rážích .22-250 Rem, 6 mm Creedmoor, 6,5 Creedmoor, 6,5 PRC, .308 Win a .300 Win Mag. Ve stejné řadě existují i provedení HMR Pro s nerezovým systémem a další varianty B14 lišící se pažbou a hlavní.
 
 Oficiální stránky výrobce: [www.bergara.online](https://www.bergara.online)
+
+Pořídili jste si Bergaru B14 HMR nebo HMR Pro? Zajímá nás, jakou přesnost z ní reálně máte, v jaké ráži a co jste díky kompatibilitě se systémem Remington 700 a zásobníkům AICS dovybavovali.

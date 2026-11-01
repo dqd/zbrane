@@ -8,3 +8,5 @@ Válcový odsuvný závěr má šest uzamykacích ozubů a krátký úhel otevř
 Sauer 200 STR je sportovní terčová verze kulovnice Sauer 200 se stejným základním systémem, ale sportovní pažbou a výbavou; SSG 3000 je její služební odvozenina se zaměřením na policejní odstřelovače. SSG 3000 se rozšířila zejména mezi policejními a speciálními jednotkami, mimo jiné ji používala česká a slovenská policie a řada dalších jednotek po celém světě. Výroba již byla ukončena, zbraně se však dál objevují na trhu z druhé ruky.
 
 Oficiální stránky výrobců: [SIG Sauer](https://www.sigsauer.com), [J. P. Sauer & Sohn](https://www.sauer.de)
+
+Máte SSG 3000 nebo terčovou Sauer 200 STR? Zajímá nás, jak se s nimi střílí dnes, na co se zaměřit při koupi z druhé ruky a jestli jste využili možnost výměny hlavně za jinou ráži.

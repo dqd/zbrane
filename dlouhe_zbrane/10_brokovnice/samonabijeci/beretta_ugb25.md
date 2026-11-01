@@ -8,3 +8,5 @@ Od běžných samonabíjecích brokovnic se zásadně liší konstrukcí: nemá 
 Jediná hlaveň má ventilovanou lištu a výměnné sbíhavosti, pažbu lze nastavit podle střelce. Samonabíjecí systém výrazně snižuje vnímaný zpětný ráz oproti kozlici stejné hmotnosti, což je výhodou při dlouhých závodech, kde střelec vystřelí stovky ran. Hlavní rozdíl oproti závodním kozlicím Beretta je tedy v principu (samonabíjecí jediná hlaveň proti dvěma hlavním) a v menším zpětném rázu, za cenu vyšší složitosti a menší rozšířenosti na střelištích.
 
 Oficiální stránky výrobce: [www.beretta.com](https://www.beretta.com)
+
+Přešel někdo z kozlice na UGB25 Xcel? Zajímá nás, jak moc je menší zpětný ráz znát při dlouhých závodech, jak se zvyká na nabíjení bočním okénkem a jak zbraň přijímají rozhodčí a ostatní střelci.

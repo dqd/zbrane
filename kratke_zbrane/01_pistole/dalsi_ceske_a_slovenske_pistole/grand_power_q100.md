@@ -8,3 +8,5 @@ Q100 přebírá od K100 princip uzamčení otočnou hlavní: hlaveň se při zá
 Vyrábí se v ráži 9×19, zásobník pojme 15 nábojů, hlaveň je dlouhá 108 mm. Pod hlavní je montážní lišta Picatinny. Oproti K100 má Q100 delší záměrnou vzdálenost. Rozborka je jednoduchá, pistole se rozkládá na rám, závěr a hlaveň s vratnou pružinou.
 
 Oficiální stránky výrobce: [grandpower.eu](https://grandpower.eu)
+
+Kdo dal přednost úderníkové Q100 před kohoutovou K100, případně má obě? Napište, jak vám vyhovuje dvojčinná spoušť, jak se pistole chová při rychlé střelbě a jak hodnotíte delší záměrnou.

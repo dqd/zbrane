@@ -8,3 +8,5 @@ Téma zahrnuje malé kapesní pistole v ráži 6,35 Browning vyráběné v Česk
 Jan Kratochvíl ji v roce 1945 přepracoval na jednodušší a levnější vz. 45 bez manuální pojistky, s pojistkou zásobníku a zásobníkem na 8 nábojů; tu vyráběly Strakonice od roku 1946 do počátku 50. let. Na ni navázala CZ 92 z Uherského Brodu, představená v roce 1992 s modernějším tvarem rukojeti a záchytem zásobníku za spouští, vyráběná i ve verzi s lehkým rámem.
 
 Samostatnou linii tvoří pistole DUO firmy František Dušek z Opočna, napodobenina Browningovy pistole vz. 1906 bez pojistky v rukojeti, se zásobníkem na 6 nábojů. Po znárodnění v roce 1948 přešel závod pod ČZ Strakonice a následně pod Zbrojovku Brno, kde se pistole od roku 1950 vyráběla pod názvem „Z“ zhruba do konce 50. let; podle některých pramenů se později vyráběla i v Uherském Brodě. Pistole DUO a Z se vyráběly ve velkém množství a dodnes jsou běžné na sběratelském trhu.
+
+Patří do vaší sbírky vz. 36, vz. 45, CZ 92 nebo opočenská DUO či „Z“? Napište, v jakém stavu je váš kus, jaké nese značení a jestli s ním v ráži 6,35 Browning ještě občas vyrazíte na střelnici.

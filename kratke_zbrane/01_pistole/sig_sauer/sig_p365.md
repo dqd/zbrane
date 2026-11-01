@@ -10,3 +10,5 @@ Základní P365 má hlaveň 3,1 palce a zásobníky na 10 nebo 12 nábojů. P365
 Pistole se vyrábí v USA v New Hampshire a patří k nejprodávanějším zbraním pro skryté nošení na americkém trhu; její koncepce vyvolala vlnu podobných „mikrokompaktů“ u konkurence.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Nosíte P365, XL nebo X-Macro? Zajímá nás, kterou velikost jste si pro skryté nošení vybrali, v jakém pouzdře ji nosíte a zda jste využili možnost přesadit spoušťovou jednotku do jiného úchopového modulu.

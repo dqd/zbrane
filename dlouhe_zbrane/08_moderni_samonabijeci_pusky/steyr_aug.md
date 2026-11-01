@@ -10,3 +10,5 @@ Původní verze A1 má integrovaný optický zaměřovač Swarovski se zvětšen
 AUG Z (Z jako Zivil) je civilní samonabíjecí verze, kterou dnes vyrábí firma Steyr Arms; vyrábí se ve více provedeních a délkách hlavně. AUG používá rakouská armáda a ozbrojené síly či policie řady dalších zemí, mj. Austrálie (jako F88 vyráběná v Lithgow), Nového Zélandu, Irska, Malajsie a Saúdské Arábie. Jednotlivé verze se tedy liší hlavně zaměřovačem a montážemi (A1 až A3), zásobníky (Steyr vs. STANAG) a civilním či vojenským provedením spouště.
 
 Oficiální stránky výrobce: [www.steyr-arms.com](https://www.steyr-arms.com)
+
+Kdo tu střílí s AUG Z? Napište, kterou verzi máte – A1 s optikou Swarovski, A2, nebo A3 –, jak vám vyhovuje ergonomie bullpupu a zda jste zkoušeli výměnu hlavně nebo konverzi na 9×19.

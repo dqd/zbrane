@@ -6,3 +6,5 @@ Norinco 77B (Model 77B) je čínská samonabíjecí pistole v ráži 9×19, kter
 Pistole pracuje s plynem zpožděným dynamickým závěrem a pevnou hlavní podobně jako Heckler & Koch P7: část plynů je odváděna z hlavně do válce pod ní a brzdí pohyb závěru. Spoušť je jednočinná a pistole má manuální pojistku. Jednořadý zásobník pojme 9 nábojů. Zbraň je celoocelová a s hmotností kolem 1 kg na svou velikost poměrně těžká.
 
 Kritici upozorňují, že jednoruční natahování vyžaduje značnou sílu a dlouhý ukazováček. Pistole se vyráběla převážně pro export a na civilních trzích je dnes poměrně vzácná, proto zajímá spíše sběratele. Z 77B vycházejí verze NP-20 bez jednoručního natahování a NP-24 s dvouřadým zásobníkem na 15 nábojů.
+
+Vlastní někdo 77B? Rádi bychom slyšeli, jak se vám daří jednoruční natahování lučíkem, jak se pistole chová při střelbě a odkud váš kus pochází.

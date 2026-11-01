@@ -8,3 +8,5 @@ Revolvery X-rámu mají pevný rám, výklopný válec na 5 nábojů a spoušť 
 Model 460 z roku 2005 je komorován pro náboj .460 S&W Magnum s velmi vysokou úsťovou rychlostí a plochou dráhou střely; jeho válec pojme i náboje .454 Casull a .45 Colt, takže lze střílet i podstatně slabší střelivo. Hlavním účelem obou revolverů je lov velké zvěře s krátkou zbraní a ochrana před velkými šelmami, jsou však oblíbené i pro rekreační střelbu.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Střílel někdo z vás s Modelem 500 nebo 460? Zajímá nás, jak se dá zpětný ráz vydržet, jak se s nimi loví a zda u 460 využíváte i slabší .454 Casull nebo .45 Colt.

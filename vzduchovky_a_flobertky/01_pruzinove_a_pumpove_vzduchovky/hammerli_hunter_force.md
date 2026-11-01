@@ -8,3 +8,5 @@ Napíná se zlomením hlavně, které stlačí pružinu s pístem; ocelová drá
 Pažba typu Monte Carlo je z bukového dřeva, má gumovou botku a je vhodná pro praváky i leváky. Otevřená mířidla mají optická vlákna Tru-Glo, na pouzdře je lišta 11 mm pro puškohled a zbraň má automatickou pojistku, která se aktivuje při natažení. Ve variantě Combo se prodává spolu s puškohledem 4×32 a montáží. Jde o cenově dostupnou vzduchovku pro rekreační střelbu a plinking.
 
 Oficiální stránky výrobce: [Umarex](https://www.umarex.de)
+
+Koupili jste si Hunter Force 750, třeba v sadě Combo? Napište, jak jste spokojeni s přesností a dodaným puškohledem 4×32, jaké diabolky používáte a jak hodnotíte zpracování.

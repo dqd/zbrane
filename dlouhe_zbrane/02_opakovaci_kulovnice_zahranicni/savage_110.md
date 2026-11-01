@@ -8,3 +8,5 @@ Charakteristickými prvky jsou závěr se dvěma předními ozuby a „plovoucí
 Varianty se liší hlavně pažbou a hlavní: Trophy Hunter je lovecká verze se syntetickou pažbou, často s namontovaným puškohledem; LE (Law Enforcement) je řada policejních pušek s těžkou hlavní, mezi něž patří i 10 FCP-SR s krátkou hlavní se závitem pro tlumič; TR je taktická verze s těžkou hlavní; 110 BA je odstřelovačská puška v magnumových rážích .300 Win Mag a .338 Lapua Magnum s hliníkovým lůžkem a nastavitelnou pažbou. Od roku 2018 nese řada 110 i stavitelnou pažbu AccuFit a varianty s lůžky typu chassis.
 
 Oficiální stránky výrobce: [savagearms.com](https://savagearms.com)
+
+Které provedení Savage 10 nebo 110 používáte – loveckou Trophy Hunter, policejní LE, nebo 110 BA v magnumových rážích? Zajímá nás, jak se vám osvědčila AccuTrigger a jestli jste využili snadnou výměnu hlavně pomocí matice.

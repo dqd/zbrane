@@ -8,3 +8,5 @@ Vychází ze systému Ruger M77 Hawkeye s řízeným podáváním náboje drápo
 Zásobování obstarává odnímatelný schránkový zásobník, v ráži .308 Win s kapacitou 3, 5 nebo 10 nábojů. Hlavní ráže jsou .308 Win, dále 5,56×45 / .223 Rem, 6,5 Creedmoor a .450 Bushmaster, existují také provedení s nerezovou hlavní a pro leváky. Zbraň je ceněna jako robustní a praktická karabina pro lov v lese, horách i v náročných podmínkách.
 
 Oficiální stránky výrobce: [ruger.com](https://ruger.com)
+
+Funguje podle vás scout koncept v praxi? Napište, jak s Ruger Gunsite Scout lovíte nebo střílíte, jestli používáte předsunutou optiku, nebo klasický puškohled nad pouzdrem, a jak jste spokojeni s mířidly ghost ring.

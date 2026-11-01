@@ -8,3 +8,5 @@ Na rozdíl od malorážkových terčových pistolí Pardini pracuje GT9 s uzamč
 Dvouřadý zásobník pojme 17 nábojů 9×19, na objednávku se dodává i v ráži 9×21 IMI, oblíbené v zemích, kde byla civilní ráže 9×19 omezena. Sesterský model GT45 je určen pro náboj .45 ACP. Pistole GT spojuje s ostatní produkcí Pardini pečlivé zpracování a důraz na přesnost; v Česku jsou spíše vzácné, protože v praktické střelbě zde dominují CZ Shadow 2, Tanfoglio a pistole na bázi 1911.
 
 Oficiální stránky výrobce: [www.pardini.it](https://www.pardini.it)
+
+Závodí u nás někdo s Pardini GT9 nebo GT45? Rádi bychom slyšeli, jak si vede ve srovnání se Shadow 2 či Tanfogliem a jaké úpravy jste na ní dělali.

@@ -10,3 +10,5 @@ Z Modelu 39 vzešla druhá a od konce 80. let třetí generace, u níž čtyřm�
 Pistole S&W sloužily mnoha americkým policejním sborům; Model 39 zavedla jako jeden z prvních sborů Illinoiská státní policie a jeho upravená tlumená verze Mk 22 „Hush Puppy“ sloužila u námořnictva USA. Výrobcem byla firma Smith & Wesson ve Springfieldu v Massachusetts.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Patří do vaší sbírky Model 39, terčová Model 52 nebo některá z pozdějších 3913, 4566 či 915? Napište, v jakém je stavu, jak se s ní dnes střílí a jak podle vás obstojí vedle moderních polymerových pistolí.

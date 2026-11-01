@@ -8,3 +8,5 @@ Pistole funguje na principu krátkého zákluzu s uzamčením výkyvnou hlavní,
 V roce 2013 musela firma kvůli vadám pojistky proti pádu stáhnout model C a později i model F; původní řadu nahradila upravená verze Enhanced F (EF) s přepracovanou spouští, úderníkem a jednodílnou ocelovou vložkou rámu, pro americký trh vyráběná v Boise v Idahu. Pistole Caracal se staly služební zbraní ozbrojených sil SAE a byly zavedeny také v Bahrajnu a Jordánsku.
 
 Oficiální stránky výrobce: [www.caracal.ae](https://www.caracal.ae)
+
+Narazil někdo z vás na Caracal u nás? Zajímají nás zkušenosti s mířidly Quick Sight a také to, zda máte původní kus z doby stahování, nebo už upravenou verzi Enhanced F.

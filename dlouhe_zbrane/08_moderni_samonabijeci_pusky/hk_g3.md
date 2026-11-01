@@ -8,3 +8,5 @@ G3 se stala jednou z nejrozšířenějších bojových pušek a licenčně se vy
 HK91 je civilní samonabíjecí verze G3, HK33 zmenšená vojenská verze v ráži 5,56×45 (civilní samonabíjecí HK93). HK SL7 je civilní lovecko-sportovní puška v ráži .308 Win se stejným válečkovým systémem, ale s dřevěnou pažbou, kratším zásobníkem a vzhledem bez vojenských prvků. Pušky na bázi G3 se vyznačují spolehlivostí a robustností, ale také výrazným zpětným rázem, prudkým vyhazováním nábojnic a optika se obvykle upevňuje speciální drápkovou montáží HK.
 
 Oficiální stránky výrobců: [Heckler & Koch](https://www.heckler-koch.com), [POF](https://www.pof.gov.pk)
+
+HK91, SL7, CETME C, nebo POF G3 – kterou ze zbraní s válečkovým závěrem máte? Napište, jak zvládáte zpětný ráz a odlétající nábojnice a jakou optiku na drápkové montáži HK používáte.

@@ -8,3 +8,5 @@ Zastava M53 (Šarac) je jugoslávská poválečná kopie německého kulometu MG
 Browning M2HB je americký těžký kulomet konstrukce Johna M. Browninga s krátkým zákluzem hlavně v ráži .50 BMG (12,7×99), zásobovaný pásem; označení HB znamená těžkou hlaveň (heavy barrel) chlazenou vzduchem. Vyrábí se v různých úpravách od 30. let dodnes a používají jej ozbrojené síly USA, NATO a desítek dalších zemí na vozidlech, lodích i podstavcích.
 
 Hlavní rozdíly jsou v ráži a určení: MG 81 je lehký letecký kulomet, M53 univerzální pěchotní kulomet a M2HB těžký kulomet. Civilní samonabíjecí verze vznikají přestavbou původních zbraní a jsou určeny hlavně sběratelům a pro ukázkovou střelbu.
+
+Střílel někdo z vás z přestavěného M2HB v .50 BMG nebo ze samonabíjecího M53 či MG 81? Popište, jak taková zbraň v civilní úpravě funguje, na jakém podstavci ji máte a kde se s ní dá střílet.

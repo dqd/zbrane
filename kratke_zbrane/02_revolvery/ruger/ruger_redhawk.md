@@ -8,3 +8,5 @@ Super Redhawk z roku 1987 má prodloužený rám, který obepíná zadní část
 Alaskan z roku 2005 je zkrácený Super Redhawk s hlavní délky přibližně 2,5″, která končí téměř u čela prodlouženého rámu; v ráži .454 Casull, .44 Magnum nebo .480 Ruger slouží jako ochrana před medvědy a velkými šelmami. Všechny verze jsou mimořádně odolné a těžké.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Lovíte se Super Redhawkem, nebo střílíte s klasickým Redhawkem či krátkým Alaskanem? Podělte se o zkušenosti s rážemi .44 Magnum, .454 Casull nebo .480 Ruger, s optikou na integrovaném lůžku a se zpětným rázem.

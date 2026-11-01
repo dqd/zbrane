@@ -8,3 +8,5 @@ Hlaveň je dlouhá zhruba 6,5 palce (165 mm) a celková délka zbraně se pohybu
 Kvůli krátké hlavni a absenci pažby je zpětný ráz velmi výrazný a účinný dostřel malý; zbraň je spíše specialitou pro sběratele a nadšence než praktickým nástrojem. V USA spadá do zvláštní kategorie AOW (Any Other Weapon) podle zákona NFA, v Evropě podléhá běžným pravidlům pro krátké palné zbraně podle místní legislativy.
 
 Oficiální stránky výrobce: [serbu.com](https://serbu.com)
+
+Střílel někdo ze Super Shorty? Popište, jak zvládáte zpětný ráz bez pažby, zda kvůli kapacitě používáte mini náboje a jestli je to podle vás jen zábavná kuriozita, nebo i použitelná zbraň.

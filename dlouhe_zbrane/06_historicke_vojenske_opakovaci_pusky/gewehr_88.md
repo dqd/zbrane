@@ -8,3 +8,5 @@ Odsuvný otočný závěr se uzamyká dvěma ozuby v přední části, zásobov�
 Vyráběly ji státní zbrojovky ve Spandau, Amberku, Gdaňsku a Erfurtu i soukromé firmy Ludwig Loewe v Berlíně a OEWG ve Steyru. Vedle pušky existovaly karabina Kar 88 a zkrácená Gewehr 91. Část pušek byla později přestavěna na verze Gew 88/05 a Gew 88/14 s možností plnění z mauserovských nábojových pásků.
 
 Puška sloužila v německé armádě až do zavedení Gewehr 98, v první světové válce u druhosledových jednotek, a byla vyvážena mj. do Osmanské říše a Číny, kde se dlouhá desetiletí vyráběla její kopie Hanyang 88.
+
+Kdo má ve sbírce Gewehr 88, Kar 88 nebo přestavbu 88/05 či 88/14? Podělte se o značení, výrobce a stav svého kusu – třeba jestli nese písmeno „S“ – a jestli se s ní odvažujete střílet.

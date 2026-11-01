@@ -8,3 +8,5 @@ MRAD (Multi-Role Adaptive Design), představený na počátku 2010s, z této kon
 MRAD v provedení Mk22 zvítězil v soutěži amerického velitelství speciálních sil (SOCOM) na novou precizní pušku a byl následně zaveden u ozbrojených sil USA; používá jej i řada dalších armád a policejních jednotek.
 
 Oficiální stránky výrobce: [barrett.net](https://barrett.net)
+
+Měli jste možnost střílet s Barrettem MRAD nebo 98B? Zajímá nás, jak se v praxi osvědčuje výměna hlavně u MRAD, v jakých rážích ho používáte a jak se obě pušky chovají v .338 Lapua Magnum.

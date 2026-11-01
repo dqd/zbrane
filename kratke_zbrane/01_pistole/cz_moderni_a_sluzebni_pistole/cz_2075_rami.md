@@ -8,3 +8,5 @@ Konstrukčně vychází z CZ 75: pracuje na principu krátkého zákluzu se sklo
 Základní verze má manuální pojistku na rámu, varianta RAMI BD místo ní vypínač kohoutu. Existovala také verze RAMI P s rámem z polymeru. Díky kombinaci malých rozměrů, kovové konstrukce a spouště DA/SA byla RAMI oblíbená mezi příznivci skrytého nošení, v nabídce zbrojovky ji později nahradily novější kompaktní modely.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Nosíte RAMI s pojistkou, verzi BD s vypínačem kohoutu, nebo polymerovou RAMI P? Napište, jak se osvědčila při skrytém nošení, jaké pouzdro používáte a jestli dáváte přednost běžnému, nebo prodlouženému zásobníku.

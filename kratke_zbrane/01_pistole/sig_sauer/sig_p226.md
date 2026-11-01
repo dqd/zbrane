@@ -8,3 +8,5 @@ Základní P220 z roku 1975 (švýcarská armáda P75) má jednořadý zásobní
 Řada Legion přinesla vylepšené provedení P226 a dalších modelů s upravenou spouští, mířidly a střenkami, ve verzi DA/SA i SAO. Pistole se vyráběly v Eckernförde (výroba tam skončila v roce 2020) a od 90. let i v USA. Používaly je mj. švýcarská armáda (P220), japonské síly sebeobrany (licenční P220), německé policie (P6), jednotky Navy SEAL (P226), armáda USA (P228 jako M11) a britské ozbrojené síly (P226 jako L105A1).
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Kterému klasickému SIGu dáváte přednost – P226, kompaktním P228 a P229, štíhlé P239, nebo jednořadým P220 a P225? Podělte se o zkušenosti s DA/SA spouští, vybíjecí pákou a třeba i s verzemi Legion.

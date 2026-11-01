@@ -8,3 +8,5 @@ TCP 738 z konce první dekády 21. století je klasická štíhlá kapesní pist
 180 Curve z roku 2015 je neobvyklá konstrukce, jejíž rám je prohnutý podle tvaru těla, aby se pistole lépe nosila bez pouzdra za pasem; má integrovanou svítilnu a laserový zaměřovač, sponu pro nošení a zásobník na 6 nábojů. Klasická mířidla nemá, protože počítá se střelbou na velmi krátkou vzdálenost s pomocí laseru, což bývá terčem kritiky. Zatímco TCP představuje praktický a levný standard kapesní pistole, Spectrum a Curve jsou především pokusy o odlišení designem a ergonomií.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Nosí někdo TCP 738, Spectrum nebo dokonce prohnutou 180 Curve? Zajímá nás, jak se s nimi žije při každodenním nošení, jak zvládáte dlouhý chod spouště a jak se u Curve střílí jen s laserem bez mířidel.

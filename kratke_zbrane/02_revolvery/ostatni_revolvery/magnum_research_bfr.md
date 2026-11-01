@@ -8,3 +8,5 @@ Vyrábí se ve dvou velikostech: s krátkým válcem pro klasické revolverové 
 Původně revolvery vyráběla firma D-MAX, výrobu později převzal Magnum Research s výrobou v Minnesotě; od roku 2010 patří Magnum Research skupině Kahr Arms. BFR je především lovecká zbraň pro lov revolverem a pro střelbu na delší vzdálenosti, ceněná pro přesnost a pevnost.
 
 Oficiální stránky výrobce: [www.magnumresearch.com](https://www.magnumresearch.com)
+
+Lovil někdo z vás s BFR, nebo ho aspoň vyzkoušel v některé z extrémních ráží jako .45-70 Government či .500 S&W Magnum? Zajímá nás přesnost, mířidla či optika, zpětný ráz a jak se s takovou zbraní pracuje v praxi.

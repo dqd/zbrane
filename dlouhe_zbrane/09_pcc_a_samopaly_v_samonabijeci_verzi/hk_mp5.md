@@ -10,3 +10,5 @@ MP5 používají stovky policejních a armádních jednotek po celém světě, o
 MP5 se dále licenčně i nelicenčně vyráběl v mnoha zemích: pákistánská POF (Pakistan Ordnance Factories) nabízí samonabíjecí POF MP5 a turecká MKE samonabíjecí verze prodávané například jako Zenith Z-5 nebo T94. Klony se obvykle liší kvalitou zpracování, povrchovou úpravou a drobnostmi v konstrukci, ale většinou jsou kompatibilní s originálními zásobníky a příslušenstvím. Vedle toho existují i americké klony, například od PTR.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Máte originální HK SP5, starší SP89, nebo některý z klonů od POF či MKE? Porovnejte prosím zpracování a spolehlivost klonů s originálem a napište, jaké zásobníky a příslušenství používáte.

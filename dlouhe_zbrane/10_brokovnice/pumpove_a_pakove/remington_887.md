@@ -8,3 +8,5 @@ Brokovnice je ráže 12 s nábojovou komorou 89 mm (3½″), takže pojme náboj
 Zbraň nikdy nedosáhla obliby a rozšíření modelu 870 a dnes se již nevyrábí, na trhu s použitými zbraněmi je proto spíše méně častá. Ceněna je především odolnost povrchu ve špatném počasí, kritici naopak zmiňují hrubší chod pumpy ve srovnání s klasickými ocelovými konstrukcemi.
 
 Oficiální stránky výrobce: [www.remarms.com](https://www.remarms.com)
+
+Jak se vám osvědčila 887 Nitro Mag? Napište, jak povrch ArmorLokt snáší léta v revíru a špatné počasí a zda vás hrubší chod pumpy oproti 870 opravdu obtěžuje.

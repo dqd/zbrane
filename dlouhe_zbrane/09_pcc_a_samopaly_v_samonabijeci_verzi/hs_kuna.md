@@ -8,3 +8,5 @@ Kuna je ráže 9×19 a na rozdíl od většiny konkurentů nepoužívá dynamick
 Zbraň používá vlastní průsvitné polymerové zásobníky na 30 nábojů, pro některé trhy se dodávají i desetiranové. V USA prodává samonabíjecí verzi s hlavní kolem 6 palců firma Springfield Armory pod názvem Springfield Kuna, na mezinárodním trhu se nabízí pod značkou HS Produkt jako pistole i karabina s hlavní 12 palců.
 
 Oficiální stránky výrobce: [www.hs-produkt.hr](https://www.hs-produkt.hr)
+
+Měl už někdo v ruce Kunu, ať jako Springfield Kuna, nebo jako karabinu HS Produkt s dvanáctipalcovou hlavní? Napište první dojmy z válečkově brzděného závěru a jak se střílí ve srovnání s PCC s dynamickým závěrem.

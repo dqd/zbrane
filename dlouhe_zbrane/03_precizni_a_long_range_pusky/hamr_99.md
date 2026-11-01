@@ -6,3 +6,5 @@ Hamr 99 je malosériová česká kulovnice s ručně ovládaným válcovým záv
 Náboj .50 BMG s hmotností střely kolem 42–52 g a úsťovou energií přes 15 000 J vyžaduje masivní závěr, těžkou hlaveň a účinnou úsťovou brzdu, které jsou u zbraní této kategorie standardem.
 
 Podrobné technické údaje k Hamru 99 – zda je jednoranný, nebo opakovací se zásobníkem, délka hlavně, hmotnost, provedení pažby i počty vyrobených kusů – nejsou veřejně dobře zdokumentovány a informace pocházejí hlavně z diskusních fór. Téma je proto otevřené pro majitele a střelce, kteří mají se zbraní vlastní zkušenost.
+
+Pokud jste Hamr 99 drželi v ruce nebo z něj stříleli, doplňte prosím chybějící údaje – zda je jednoranný, nebo se zásobníkem, délku hlavně, hmotnost – a napište, jak se s ním střílí.

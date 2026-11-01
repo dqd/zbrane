@@ -8,3 +8,5 @@ Hlavní zvláštností je dopředné vyhazování nábojnic: vytažená nábojni
 Vyrábí se ve verzích s různou délkou hlavně (např. kratší Carbine a delší Sporter), které se liší zejména celkovou délkou, hmotností a vybavením předpažbí. RFB nabízí velmi kompaktní rozměry na zbraň v ráži .308 Win, kritizována bývá spoušť s delším chodem typickým pro bullpupy, vyšší hmotnost a menší dostupnost příslušenství. Jde výhradně o civilní zbraň bez vojenských či policejních zakázek, určenou pro sportovní a rekreační střelbu i lov.
 
 Oficiální stránky výrobce: [www.keltecweapons.com](https://www.keltecweapons.com)
+
+Jak se vám s RFB žije v praxi? Zajímá nás, jak spolehlivě funguje dopředné vyhazování, jak snášíte spoušť a hmotnost a zda jste zvolili kratší Carbine, nebo delší Sporter.

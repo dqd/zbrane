@@ -6,3 +6,5 @@ Vydra 99 je malosériová česká jednoranná kulovnice s ručně ovládaným v�
 Vydra 99 nemá zásobník: náboj se vkládá přímo do nábojové komory a po výstřelu se nábojnice ručně vytáhne pohybem závěru. Jednoranné řešení umožňuje jednoduchou, robustní a levnější konstrukci závěru a pouzdra, což je u zbraní pro tak výkonný náboj výhodou.
 
 První verze měla hlaveň dlouhou přibližně 600 mm a hmotnost kolem 8–9 kg, je tedy výrazně lehčí a kratší než služební OP 99 Falcon ze Zbrojovky Brno, za cenu citelně silnějšího zpětného rázu. Vyráběla se jen v malých počtech a podrobnější údaje o materiálech, provedení pažby a počtu vyrobených kusů nejsou veřejně dobře zdokumentovány.
+
+Střílel někdo z Vydry 99? Napište, jak se dá s jednorannou .50 BMG o hmotnosti kolem 8–9 kg vyjít se zpětným rázem, jakou přesnost z ní máte a kolik kusů či verzí jste viděli.

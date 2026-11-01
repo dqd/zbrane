@@ -8,3 +8,5 @@ Revolver má pevný rám, výklopný válec a spoušť DA/SA, vyrábí se z ocel
 Judge je určen hlavně pro obranu domova a ochranu před hady a drobnou zvěří na krátkou vzdálenost, jeho přesnost a účinnost s broky jsou však omezené. Vyrábí se v Brazílii a v USA, kde Taurus provozuje závod v Bainbridge v Georgii.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Je Judge užitečná zbraň, nebo spíš zajímavost? Pokud máte Judge, Public Defender nebo Raging Judge, napište, jak se vám s ním střílí .45 Colt a broky .410 a jaké výsledky dává na krátkou vzdálenost.

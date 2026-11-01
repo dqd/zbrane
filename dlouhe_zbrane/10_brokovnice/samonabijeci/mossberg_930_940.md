@@ -10,3 +10,5 @@ Mossberg 940 z roku 2019 je jeho výrazně přepracovaný nástupce, vyvinutý v
 Je zaměřen hlavně na sportovní střelbu, zejména na disciplíny 3-Gun a IPSC. Verze 940 Pro Tactical přenáší tyto úpravy do kratší taktické podoby s hlavní kolem 18,5 palce, lištou pro optiku a sedmiranovým zásobníkem; existují i lovecká provedení 940 Pro Field, Waterfowl a Turkey.
 
 Oficiální stránky výrobce: [www.mossberg.com](https://www.mossberg.com)
+
+Pokud střílíte 3-Gun nebo IPSC s Mossbergem 930 či 940 JM Pro, podělte se o zkušenosti – jak často čistíte plynový systém, jak se nabíjí zvětšeným oknem a v čem je 940 oproti 930 v praxi lepší.

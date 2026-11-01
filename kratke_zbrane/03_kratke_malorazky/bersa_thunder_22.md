@@ -8,3 +8,5 @@ Spoušť je dvojčinná (DA/SA) s vnějším kohoutem, na závěru je kombinovan
 Díky stejné velikosti a ovládání jako u velkorážových modelů Thunder se používá jako levná výcviková zbraň, pro rekreační střelbu a jako první krátká zbraň začínajících střelců. Bersa Thunder 22 se vyrábí od 90. let a v Evropě i USA patří k cenově dostupným malorážkovým pistolím.
 
 Oficiální stránky výrobce: [www.bersa.com.ar](https://www.bersa.com.ar)
+
+Používáte Bersu Thunder 22 jako levný trenažér k Thunder 380, nebo jako první pistoli? Napište, jak spolehlivě vám funguje s různým střelivem a jak jste spokojeni s DA/SA spouští.

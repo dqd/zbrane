@@ -8,3 +8,5 @@ M65 má válcový závěr se dvěma předními uzamykacími ozuby, dvěma zadní
 Zbraně řady Master jsou ceněny pro robustnost a přesnost a dnes se hojně prodávají z druhé ruky; v roce 2003 je v nabídce nahradila lehčí a levnější Tikka T3.
 
 Oficiální stránky výrobce: [www.tikka.fi](https://www.tikka.fi)
+
+Máte doma starší Tikku M55, M65 nebo M595/M695? Napište, jak se vám tyto modely osvědčily, na co si dát pozor při koupi z druhé ruky a jestli byste je vyměnili za novější T3.

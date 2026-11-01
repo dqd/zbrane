@@ -10,3 +10,5 @@ Vyráběla se v Tule a za války i v Iževsku až do 50. let, kdy ji nahradila p
 Jugoslávská Zastava M57 má prodlouženou rukojeť se zásobníkem na 9 nábojů a pojistku zásobníku, verze M57A má navíc manuální pojistku; na stejném základě vznikla M70A v ráži 9×19. Zastava pistole M57 dodnes vyrábí i pro civilní trh. Čínský Norinco vyráběl kromě Typu 54 i exportní verze, např. Model 213 v ráži 9×19 s manuální pojistkou.
 
 Oficiální stránky výrobce: [www.zastava-arms.rs](https://www.zastava-arms.rs)
+
+Máte ve sbírce TT-33, nebo některý z klonů – polský, maďarský, čínský Typ 54 či Zastavu M57? Napište, jaké značení váš kus nese, v jakém je stavu a jak se střílí se 7,62×25 Tokarev.

@@ -10,3 +10,5 @@ PT 908 je kompaktní pistole v ráži 9×19 s jednořadým zásobníkem na 8 ná
 PT 92 používaly brazilské policejní a bezpečnostní složky a díky nízké ceně a spolehlivosti se rozšířila i na civilní trh v USA a Evropě, kde je oblíbenou levnější alternativou Beretty 92.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Je PT 92 dobrou alternativou k Berettě 92? Napište, jak se osvědčila vaše PT 92, PT 99, PT 908 nebo PT 945, jak využíváte pojistku na rámu a jak si pistole vedou po letech střelby.

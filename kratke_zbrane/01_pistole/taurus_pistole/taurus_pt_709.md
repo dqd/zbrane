@@ -8,3 +8,5 @@ Taurus PT 709 Slim je štíhlá kompaktní samonabíjecí pistole v ráži 9×19
 Malou šířkou a nízkou hmotností se PT 709 zařadila mezi levnější alternativy štíhlých pistolí pro skryté nošení, jako jsou modely Kahr nebo Walther PPS. Cenila se zejména pro příznivou cenu a kompaktní rozměry. Výroba byla ukončena v první polovině 10. let 21. století a nástupcem se stala jednořadá Millennium G2S.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+PT 709 Slim se už nevyrábí, z druhé ruky se ale stále objevuje. Pokud ji nosíte, napište, jak vám vyhovuje spoušť s opakovaným úderem, zda používáte manuální pojistku a jak obstála při skrytém nošení.

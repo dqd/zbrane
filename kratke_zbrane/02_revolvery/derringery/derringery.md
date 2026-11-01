@@ -8,3 +8,5 @@ Moderní derringery tento princip zachovávají: hlavně se po uvolnění páčk
 Německá firma Röhm ze Sontheimu vyráběla v druhé polovině 20. století levné derringery řady RG, například RG 17 v ráži .38 Special. Americká Bond Arms z Texasu vyrábí od 90. let robustní derringery z nerezové oceli s výměnnými hlavněmi, nejčastěji pro .45 Colt/.410 nebo .357 Magnum, a americké derringery vyráběla i American Derringer Corporation. Existují i vícehlavňové varianty, například čtyřhlavňový COP .357.
 
 Oficiální stránky výrobce: [Bond Arms](https://www.bondarms.com)
+
+Má derringer dnes ještě smysl, nebo je to hlavně zajímavost do sbírky? Pokud máte Bond Arms, starší RG od Röhmu nebo jiný derringer, napište, s jakým střelivem střílíte a jak se s dvouhlavňovou zbraní trefujete.

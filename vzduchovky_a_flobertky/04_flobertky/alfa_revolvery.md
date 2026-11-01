@@ -8,3 +8,5 @@ Vyrábějí se ve třech rážích. Ráže 4 mm je komorována pro flobertový n
 Jednotlivé typy se dále liší délkou hlavně (od krátkých po dlouhé terčové), provedením povrchu a mířidly – pevnými či stavitelnými. Z revolveru v ráži 6 mm vychází také revolverová karabina Alfa Hunter.
 
 Oficiální stránky výrobce: [www.alfaproj.cz](https://www.alfaproj.cz)
+
+Kterou ráži flobertového revolveru Alfa jste zvolili – 4 mm, 6 mm, nebo 9 mm Flobert? Napište, jakou délku hlavně máte a jak se vám s ním střílí doma nebo na zahradě.

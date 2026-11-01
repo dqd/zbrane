@@ -8,3 +8,5 @@ Konstrukčně připomíná pušku AR-15: má horní díl pouzdra z oceli s celis
 Spodní díl přijímá zásobníky různých typů, zejména AICS a Magpul, u krátkého systému i typu SR-25/M110; běžná kapacita je 10 nábojů, u magnumových ráží 5. Puška se vyrábí v krátkém, dlouhém a magnumovém provedení systému v rážích jako .223 Rem, 6 mm Creedmoor, 6,5 Creedmoor, .308 Win, 6,5 PRC, .300 Win Mag, .300 PRC a .338 Lapua Magnum. Postupné generace přinesly hlavně úpravy předpažbí, pažby a úsťového zařízení.
 
 Oficiální stránky výrobce: [ruger.com](https://ruger.com)
+
+Začínali jste v PRS s Ruger Precision Rifle? Podělte se o to, v jaké ráži ho máte, jaké zásobníky používáte, co jste na něm měnili a jak obstál na soutěžích.

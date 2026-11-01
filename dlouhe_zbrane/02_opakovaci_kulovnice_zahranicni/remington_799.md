@@ -8,3 +8,5 @@ Konstrukčně jde o zmenšený systém Mauser 98 pro krátké náboje: válcový
 Vyráběla se poměrně krátce a prodávala jen v omezeném počtu, kritizována byla hlavně slabší spoušť a kolísavá kvalita zpracování, zatímco robustní mauserovský princip byl hodnocen příznivě. Samotný Zastava M85 se dál vyrábí a prodává pod vlastní značkou v různých provedeních pažby, mimo jiné i na evropském trhu, a je obdobou české CZ 527.
 
 Oficiální stránky výrobce: [www.zastava-arms.rs](https://www.zastava-arms.rs)
+
+Narazil někdo na Remington 799, případně střílí se Zastavou M85? Zajímá nás, jak srbský mini-Mauser obstojí ve srovnání s CZ 527, jak je na tom spoušť a zpracování a v jaké ráži ho používáte.

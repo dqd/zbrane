@@ -8,3 +8,5 @@ Pouzdro je ze slitiny lehkých kovů, pažby a předpažbí z polymeru; vyrábě
 Vysoká cena originálu dala vzniknout řadě tureckých klonů, které vzhled i princip M4 více či méně věrně kopírují, například Panzer Arms M4, Sulun Tac-12 nebo Alda Arms M4. Klony jsou výrazně levnější, liší se však kvalitou materiálů, tepelného zpracování a povrchových úprav, a výměna dílů s originálem není vždy možná bez úprav.
 
 Oficiální stránky výrobce: [www.benelli.it](https://www.benelli.it)
+
+Originál M4, nebo turecký klon? Napište, kterou zbraň máte – Benelli, Panzer, Sulun či Alda – jak vám funguje s různými náboji a zda jste u klonu narazili na problémy s kvalitou nebo zaměnitelností dílů.

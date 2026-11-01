@@ -8,3 +8,5 @@ Vyráběla se ve dvou rážích: v .22 LR se zásobníkem pro 6 nábojů a v .32
 Jednodušší a levnější sestrou je model MP 95E s méně propracovanou rukojetí a výbavou. Na střelnicích jsou méně rozšířené než konkurenční Pardini, Walther nebo Hämmerli, takže se dnes objevují hlavně na trhu s použitými sportovními zbraněmi.
 
 Oficiální stránky výrobce: [www.benelli.it](https://www.benelli.it)
+
+Závodí tu někdo s Benelli MP 90S nebo MP 95E? Podělte se o zkušenosti s nastavením spouště, se zásobníkem vkládaným shora a o tom, jak si stojí ve srovnání s Pardini nebo Walther.

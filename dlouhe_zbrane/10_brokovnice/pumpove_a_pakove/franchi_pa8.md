@@ -8,3 +8,5 @@ PA8 je ráže 12 a má ocelovou hlaveň dlouhou nejčastěji 47 cm (18,5″) a t
 Ve srovnání se SPAS-12 je PA8 výrazně lehčí a jednodušší na údržbu, ale chybí jí samonabíjecí režim. Zbraň získala jen omezené rozšíření u ozbrojených složek, zejména v Itálii a Španělsku. Franchi dnes pumpové brokovnice nevyrábí a soustředí se na lovecké samonabíjecí a dvouhlavňové brokovnice, PA8 se tak vyskytuje už jen na trhu s použitými zbraněmi.
 
 Oficiální stránky výrobce: [www.franchi.com](https://www.franchi.com)
+
+Narazili jste na trhu s použitými zbraněmi na Franchi PA8? Napište, kterou variantu máte, jak se vám osvědčila ve srovnání se SPAS-12 a jak jste na tom se sháněním dílů.

@@ -8,3 +8,5 @@ Původní Shield se vyráběla v ráži 9×19 se zásobníky na 7 a 8 nábojů a
 Shield EZ z roku 2018 je naopak samostatná konstrukce pro střelce se slabším stiskem: má skrytý kohout, mimořádně snadno natahovatelný závěr, pojistku v hřbetu rukojeti a jednořadý zásobník, který se snadno plní. Původně byla v ráži .380 ACP (8 nábojů), poté přibyly verze v 9×19 a .30 Super Carry. Zatímco klasický Shield a Shield Plus cílí na maximální kapacitu v malých rozměrech, EZ upřednostňuje snadnou obsluhu a mírný zpětný ráz.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Který Shield nosíte – původní, M2.0, Plus, nebo EZ? Podělte se o zkušenosti s nošením, pouzdry a spolehlivostí a napište, komu byste doporučili spíš kapacitní Shield Plus a komu snadno ovladatelnou EZ.

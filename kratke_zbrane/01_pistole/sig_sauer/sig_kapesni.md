@@ -10,3 +10,5 @@ P238, uvedená v roce 2009, a P938 z roku 2011 jsou naopak americké konstrukce 
 P232 tak oslovuje příznivce klasických kapesních pistolí s dvojčinnou spouští, zatímco P238 a P938 nabízejí ovládání blízké pistoli 1911 a vyšší výkon při podobných rozměrech.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Dáváte přednost klasické P232 s DA/SA, nebo ovládání ve stylu 1911 u P238 a P938? Napište, jak se vám kterou z nich nosí, v jakém pouzdře a jak zvládáte zpětný ráz P938 v 9×19.

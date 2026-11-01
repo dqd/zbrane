@@ -8,3 +8,5 @@ Výrazným znakem je futuristický vzhled s pažbou, jejíž součástí je pist
 Cx4 se vyrábí v rážích 9×19, 9×21 (pro italský trh), .40 S&W a .45 ACP a používá zásobníky z pistolí Beretta – podle verze z modelů 92/96, Px4 Storm nebo 8000 Cougar, u .45 ACP z Px4. Karabina tak tvoří logický doplněk k pistoli stejné značky, protože obě zbraně mohou sdílet zásobníky i střelivo. Vedle civilních střelců, kteří ji oceňují pro nízký zpětný ráz a snadné ovládání, ji používají i některé policejní a bezpečnostní složky. Puška Rx4 Storm v ráži 5,56×45, která s Cx4 sdílí jen název a vzhled, má samostatné téma.
 
 Oficiální stránky výrobce: [www.beretta.com](https://www.beretta.com)
+
+Máte Cx4 Storm jako doplněk k pistoli Beretta? Napište, kterou verzi a ráži jste zvolili, jak se osvědčuje sdílení zásobníků s Px4 nebo 92 a co říkáte na netradiční pažbu.

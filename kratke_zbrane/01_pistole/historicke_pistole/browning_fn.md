@@ -8,3 +8,5 @@ M1900 byla první pistolí pro náboj 7,65 Browning (.32 ACP), měla vratnou pru
 Colt 1903 Pocket Hammerless je americká obdoba Browningovy konstrukce v ráži .32 ACP. M1910 přinesla vratnou pružinu navinutou kolem hlavně a úderník, vyráběla se v ráži 7,65 Browning a 9 mm Browning krátký. Prodloužená M1922 s delší hlavní a vyšší kapacitou byla určena armádám a policiím – za 2. světové války ji ve velkém používala i německá armáda.
 
 Oficiální stránky výrobců: [FN Herstal](https://www.fnherstal.com), [Colt](https://www.colt.com)
+
+Jsou ve vaší sbírce některé z prvních Browningových pistolí FN – M1900, M1903, M1910 nebo M1922 – či licenční Husqvarna m/07? Napište, jak jsou vaše kusy značené, v jakém jsou stavu a jestli se vám podařilo dohledat jejich historii.

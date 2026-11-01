@@ -8,3 +8,5 @@ První TP9 z roku 2012 byla téměř kopií Waltheru P99: polymerová pistole s 
 Verze TP9SF má jednočinnou spoušť bez vypouštěče a zásobník na 18 nábojů 9×19, sportovní TP9SFx prodlouženou hlaveň 5,2″, odlehčený závěr připravený pro kolimátor a zásobník na 20 nábojů. Kompaktnější TP9SF Elite (od roku 2017) má hlaveň 4,2″ a zásobník na 15 nábojů, Elite SC je subkompakt pro skryté nošení. Pistole TP9 používají turecké ozbrojené síly a turecká národní policie, ve světě se proslavily příznivým poměrem ceny a výkonu.
 
 Oficiální stránky výrobce: [www.canik.com](https://www.canik.com)
+
+Kterou TP9 máte – starší DA/SA verzi, SF, Elite, nebo sportovní SFx? Napište, jak se vám osvědčila v provozu a jestli opravdu nabízí tolik za své peníze, jak se o ní říká.

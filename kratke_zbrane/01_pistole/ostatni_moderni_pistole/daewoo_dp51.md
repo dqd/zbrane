@@ -8,3 +8,5 @@ Funguje na principu krátkého zákluzu s Browningovým uzamčením výkyvnou hl
 Ráže je 9×19, dvouřadý zásobník civilní verze pojme 13 nábojů (u vojenské K5 se uvádí 12 nábojů v zásobníku plus jeden v komoře), existovala i zkrácená DP51C a verze DH40 v ráži .40 S&W. Konstrukci později převzala americká firma Lionheart Industries jako LH9. Výrobce dnes působí pod názvem SNT Motiv.
 
 Oficiální stránky výrobce: [www.sntmotiv.com](https://www.sntmotiv.com)
+
+Vlastníte DP-51 nebo některou z jejích odvozenin? Zajímá nás hlavně, jak se v praxi osvědčil režim Fast Action a jestli ho opravdu používáte, nebo zůstáváte u klasického DA/SA.

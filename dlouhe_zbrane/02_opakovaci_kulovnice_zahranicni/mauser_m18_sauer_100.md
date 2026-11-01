@@ -8,3 +8,5 @@ Obě zbraně mají technicky velmi blízký systém: válcový odsuvný závěr 
 Liší se hlavně pažbou a výbavou: M18 má jednotnou polymerovou pažbu s měkčenými úchopovými plochami a vyměnitelnými vložkami a je spíše jednoúčelová a levnější. Sauer 100 se nabízí ve více provedeních, např. Classic s ořechovou pažbou, Classic XT a Ceratech s polymerovou pažbou, Fieldshoot se sportovní nastavitelnou pažbou či Pantera a Atacama s vyšší výbavou.
 
 Oficiální stránky výrobců: [Sauer](https://www.sauer.de), [Mauser](https://www.mauser.com)
+
+Mauser M18, nebo Sauer 100? Pokud vlastníte jednu z nich, napište, v jaké ráži a provedení, jak se osvědčila v revíru a jestli má podle vás Sauer oproti levnější „lidové pušce“ něco navíc.

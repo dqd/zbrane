@@ -8,3 +8,5 @@ Pouzdra jsou ze slitiny lehkých kovů, hlavně ocelové, pažby plastové nebo 
 Benelli M3 Super 90 je kombinovaná brokovnice se setrvačníkovým samonabíjecím systémem a zároveň možností přepnout pootočením kroužku na předpažbí na ruční přebíjení jako u pumpy, což umožňuje použít i slabé, nesmrtící nebo speciální náboje. Všechny tři modely mají trubicový zásobník pod hlavní, podle provedení na 4 až 8 nábojů. M1 a M3 používala řada policejních a armádních jednotek po celém světě.
 
 Oficiální stránky výrobce: [www.benelli.it](https://www.benelli.it)
+
+Střílíte s M2 v IPSC, nebo máte staršího M1 Super 90 či kombinovaného M3? Podělte se o zkušenosti se setrvačníkovým systémem – se slabšími náboji, s opřením zbraně a se spolehlivostí na soutěžích.

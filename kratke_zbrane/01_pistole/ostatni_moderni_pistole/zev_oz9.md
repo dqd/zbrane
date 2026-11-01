@@ -8,3 +8,5 @@ OZ9, představená na konci 10. let, je postavena kolem sériovaného kovového 
 Původní plnorozměrová OZ9 byla později stažena z nabídky a současná generace V2 (verze Combat, Elite, Duty či HyperComp) vychází z kompaktní OZ9C. Na šasi OZ9 je postavena i skládací karabina FDP vyvinutá s firmou Magpul. V roce 2024 část činnosti ZEV převzala firma SilencerCo a v roce 2026 se ZEV přestěhovala do Utahu.
 
 Oficiální stránky výrobce: [www.zevtechnologies.com](https://www.zevtechnologies.com)
+
+Skládáte svou OZ9 nebo OZ9C v různých konfiguracích? Podělte se, jaké rukojeti a závěry používáte, jak hodnotíte spoušť oproti upravenému Glocku a zda jste zkoušeli i karabinu FDP.

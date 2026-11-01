@@ -8,3 +8,5 @@ Pracuje se setrvačníkovým systémem s otočnou hlavou závěru, tedy bez odb�
 Hlavně se vyrábějí v délkách od 47 do 76 cm, s výměnnými zúženími a podle verze s mířidly LPA. Brokovnice má zvětšenou natahovací páku a tlačítko uvolnění závěru a novější generace přinesly upravené plnicí okno pro rychlé nabíjení po čtyřech nábojích, větší vyhazovací okno a přepracovanou pojistku. Varianta B12i T4 má odlehčený závěr s titanovou povrchovou úpravou pro rychlejší cyklus a nižší vnímaný zpětný ráz. Breda tým s modelem B12i sbírá úspěchy na mezinárodních soutěžích IPSC v brokovnici.
 
 Oficiální stránky výrobce: [www.bredafucili.com](https://www.bredafucili.com)
+
+Střílí někdo z vás s Bredou B12i? Podělte se, jak se osvědčila v IPSC či na lovu, zda jste zkoušeli verzi T4 s odlehčeným závěrem a jak obstojí ve srovnání s Benelli M2.

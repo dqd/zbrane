@@ -8,3 +8,5 @@ P11 z roku 1995 byla prvním výrobkem firmy – kompaktní pistole v ráži 9×
 Pistole Kel-Tec jsou ceněny pro nízkou hmotnost a cenu, kritizována bývá kvalita povrchové úpravy a dlouhá, těžká spoušť; P-32 a P3AT se staly vzorem celé generace kapesních pistolí.
 
 Oficiální stránky výrobce: [www.keltecweapons.com](https://www.keltecweapons.com)
+
+P-32, P3AT, P11 nebo PF9 – který Kel-Tec máte a jak se vám s ním žije? Napište, jak snášíte těžkou spoušť, jak drží povrchová úprava a zda byste ho dnes koupili znovu.

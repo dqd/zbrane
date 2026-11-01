@@ -8,3 +8,5 @@ Uzamčení zajišťuje otočná hlava závěru se čtyřmi ozuby zapadajícími 
 Po uzavření továrny v New Havenu převzala vývoj skupina Browning/FN, které značka Winchester na zbraně patří v licenci, a koncem první dekády 21. století představila Winchester SXP (Super X Pump). SXP vychází ze stejného principu otočného závěru a rychlého chodu pumpy, vyrábí se však mimo USA v závodech skupiny a má modernizované pouzdro, pojistku a pažby. Nabízí se v rážích 12 (i s komorou 89 mm) a 20, v loveckých verzích Field, Waterfowl či Turkey a ve služebních verzích SXP Defender, Marine Defender a Extreme Defender s krátkou hlavní, syntetickou pažbou a zásobníkem na 5 až 7 nábojů.
 
 Oficiální stránky výrobce: [www.winchesterguns.com](https://www.winchesterguns.com)
+
+Je speed pump u Winchesteru 1300 a SXP opravdu tak rychlý, jak se říká? Napište, které provedení máte – Field, Waterfowl, Defender či jiné – a jak se vám osvědčilo na lovu nebo na střelnici.

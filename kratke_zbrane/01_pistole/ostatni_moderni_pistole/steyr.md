@@ -8,3 +8,5 @@ Pistole fungují na principu krátkého zákluzu s uzamčením výkyvnou hlavní
 Modernizace A1 z roku 2004 přinesla lištu pod hlavní a upravenou rukojeť; plnorozměrová M-A1 má zásobník na 17 nábojů 9×19, subkompaktní S-A1 kratší rukojeť i závěr. Kolem roku 2010 přibyla C-A1 s kratším závěrem a hlavní na plnorozměrovém rámu a o něco později sportovně laděná L-A1 s prodlouženým závěrem. Generace A2 MF z roku 2019 má modulární rukojeť s výměnnými hřbety a boky a vylepšenou ergonomii. Vedle ráže 9×19 se vyráběly i verze .40 S&W, .357 SIG a 9×21.
 
 Oficiální stránky výrobce: [www.steyr-arms.com](https://www.steyr-arms.com)
+
+Používáte některý ze Steyrů řady M, A1 nebo A2 MF? Jak jste si zvykli na lichoběžníková mířidla a spoušť Reset Action a kterou verzi byste doporučili na nošení a kterou na střelnici?

@@ -8,3 +8,5 @@ MC1sc funguje na principu krátkého zákluzu s uzamčením výkyvnou hlavní, m
 Nabízí se v provedení bez manuální pojistky i s příčnou pojistkou, s mířidly s tritiovými body, s laserem nebo se závěrem pro kolimátor. Rozborka je jednoduchá a nevyžaduje stisknutí spouště. Pistole je určena pro skryté nošení a sebeobranu; na ni navázaly dvouřadé modely MC2c a MC2sc s větší kapacitou zásobníku.
 
 Oficiální stránky výrobce: [www.mossberg.com](https://www.mossberg.com)
+
+Nosíte MC1sc? Zajímá nás, kterou verzi jste zvolili – s pojistkou, bez ní, s laserem či kolimátorem – a jak se vám s plochou jednořadou devítkou žije při každodenním nošení.

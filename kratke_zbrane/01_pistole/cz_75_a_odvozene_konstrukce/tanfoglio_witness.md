@@ -8,3 +8,5 @@ Základní řadu tvoří pistole Standard a Combat s ocelovým rámem, k dispozi
 Pistole se vyrábějí ve větším rozsahu ráží než originál – vedle 9×19 také .40 S&W, .38 Super, 10 mm Auto a .45 ACP. Pro větší náboje používá Tanfoglio zvětšený rám, verze Witness v .45 ACP pojme 10 nábojů, v ráži 9×19 mají zásobníky kolem 16–17 nábojů. Tanfoglio dodával díly a know-how i dalším výrobcům, například izraelské IMI pro pistoli Jericho.
 
 Oficiální stránky výrobců: [Tanfoglio](https://www.tanfoglio.it), [EAA](https://www.eaacorp.com)
+
+Kdo střílí s Tanfogliem – ať už se Stock II v Production, se Stock III a Limited, nebo s obyčejnou Combat či Witness? Napište, v jaké ráži je máte, jaké úpravy jste dělali a jak se drží na soutěžích.

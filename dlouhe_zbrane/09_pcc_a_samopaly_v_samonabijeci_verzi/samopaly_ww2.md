@@ -10,3 +10,5 @@ Rakouský Steyr MP 34 (Steyr-Solothurn) je pečlivě obráběná zbraň s dřev�
 Samonabíjecí repliky vyrábí například americká Auto-Ordnance (Thompson 1927A-1 a M1 v .45 ACP) nebo německá Sport Systeme Dittrich, jejíž BD-38 je věrná samonabíjecí kopie MP 38 v ráži 9×19 s dobovým značením.
 
 Oficiální stránky výrobců: [Auto-Ordnance](https://www.auto-ordnance.com), [Sport Systeme Dittrich](https://ssd-weapon.com)
+
+Vlastníte samonabíjecí Thompson od Auto-Ordnance, BD-38 od SSD nebo přestavbu Stenu, MP 40 či ZK-383? Ukažte fotky a značení, napište, co víte o historii svého kusu a jak se s ním střílí.

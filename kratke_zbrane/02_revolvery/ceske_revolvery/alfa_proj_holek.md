@@ -10,3 +10,5 @@ Modely se označují čtyřčíslím, v němž první dvojčíslí udává ráž
 Levnější řada Holek, pojmenovaná po konstruktérovi Václavu Holkovi, autorovi kulometu ZB vz. 26, a prodávaná také pod označením ZHR, má rám a plášť hlavně ze zinkové slitiny, zatímco válec, vložka hlavně a díly mechanismu jsou z oceli; je lehčí, ale méně odolná. Hlavní ráží je .38 Special s válcem na 6 nábojů – například Holek 820 s hlavní 2″ pro sebeobranu nebo Holek 861 s hlavní 6″ a stavitelným hledím pro rekreační střelbu.
 
 Oficiální stránky výrobce: [www.alfaproj.cz](https://www.alfaproj.cz)
+
+Střílíte s brněnskou Alfou, Alfou Steel nebo levnějším Holkem? Napište, jakou ráži a délku hlavně jste zvolili, jak revolver obstál po letech střelby a zda se vyplatí připlatit si za celoocelové provedení.

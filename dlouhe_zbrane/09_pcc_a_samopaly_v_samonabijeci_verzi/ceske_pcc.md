@@ -10,3 +10,5 @@ Phoenix slovenské firmy KolArms z Kolárova je dynamická karabina střílejíc
 Firma Antreg z Vyškova, známá puškami ARS na bázi AR-15, ohlásila vlastní karabinu 9 mm s uzamčeným nebo polouzamčeným závěrem; její sériová podoba a dostupnost zatím nejsou jednoznačně potvrzeny. Kosa od Highland Arms je méně rozšířená samonabíjecí karabina 9×19, o níž je veřejně k dispozici jen málo technických údajů.
 
 Oficiální stránky výrobců: [KolArms](https://kolarms.sk), [Antreg](https://www.antreg.cz)
+
+Má tu někdo CSV-9, Phoenix, BARK9 nebo dokonce Kosu? Podělte se o zkušenosti se spolehlivostí a zpracováním a o to, jak obstojí ve srovnání se Scorpionem EVO 3. Uvítáme i čerstvé informace o karabině od Antregu.

@@ -8,3 +8,5 @@ FAL se stal jednou z nejrozšířenějších pušek západního světa – použ
 FN 1949, známá též jako SAFN, je Saiveho starší samonabíjecí puška se stejným principem uzamčení, ale s pevnou schránkou na 10 nábojů plněnou z nábojových pásků a dřevěnou pažbou. Vyráběla se v ráži 7×57, 7,65×53, 7,92×57 a .30-06 pro armády Belgie, Lucemburska, Egypta, Venezuely, Argentiny, Kolumbie či Indonésie.
 
 Oficiální stránky výrobce: [www.fnherstal.com](https://www.fnherstal.com)
+
+Palcová L1A1, metrický FAL, nebo starší FN 1949? Podělte se, co máte, jak řešíte zásobníky a díly mezi palcovými a metrickými verzemi a jak se vám s FALem střílí v 7,62×51.

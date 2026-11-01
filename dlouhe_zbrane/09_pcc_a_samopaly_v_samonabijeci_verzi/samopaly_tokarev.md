@@ -8,3 +8,5 @@ Sovětský PPŠ-41 konstruktéra Georgije Špagina měl ocelové pouzdro z lisov
 Jugoslávská Zastava M56 je poválečná konstrukce vizuálně připomínající německý MP 40, se sklopnou kovovou pažbou a zásobníkem na 32 nábojů; sloužila v Jugoslávské lidové armádě a objevovala se i ve válkách 90. let. Československé Sa vz. 24 (s pevnou dřevěnou pažbou) a Sa vz. 26 (se sklopnou kovovou pažbou) jsou varianty samopalů Sa vz. 23 a 25 upravené na náboj 7,62×25 při sjednocování ráží zemí východního bloku na počátku 50. let. Mají teleskopický závěr přesahující přes hlaveň a zásobník v rukojeti, což jim dává kompaktní rozměry, a sloužily v ČSLA.
 
 Zejména PPŠ-41 a PPS-43 byly po válce široce rozšířeny a používaly je armády i nepravidelné jednotky od Koreje a Vietnamu po Afriku.
+
+Máte ve sbírce PPŠ-41, PPS-43, Zastavu M56 nebo naše Sa vz. 24/26 – ať originál, nebo samonabíjecí přestavbu? Pochlubte se, v jakém je váš kus stavu, jaké nese značení a jak se s ním střílí.

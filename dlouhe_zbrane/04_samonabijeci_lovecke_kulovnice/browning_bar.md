@@ -8,3 +8,5 @@ Funguje na principu odběru prachových plynů s krátkým chodem pístu, který
 Model prošel několika generacemi: původní BAR, modernizovaný BAR Mk II z 90. let a BAR Mk 3; v USA byla řada BAR ShortTrac a LongTrac rozdělena podle délky náboje (krátké ráže typu .308 Win, resp. dlouhé typu .30-06). V Evropě se nabízí mj. verze Zenith s ozdobným pouzdrem a kvalitnějším dřevem. Eclipse je provedení s pažbou z vrstveného dřeva s otvorem pro palec (thumbhole). Varianty se kromě pažby liší i délkou hlavně, mířidly (lovecké verze pro naháňky mají široký zaměřovač a mířidla s optickými vlákny) a hmotností.
 
 Oficiální stránky výrobce: [www.browning.eu](https://www.browning.eu)
+
+Chodíte na naháňky s Browningem BAR? Podělte se, kterou generaci a ráži používáte, jak se vám osvědčila mířidla s optickými vlákny a jak je BAR spolehlivý při rychlé střelbě na běžící zvěř.

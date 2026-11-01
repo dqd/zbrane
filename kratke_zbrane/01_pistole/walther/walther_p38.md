@@ -10,3 +10,5 @@ Po válce obnovil Walther výrobu v Ulmu s rámem z hliníkové slitiny a bundes
 P5 z konce 70. let je nová konstrukce se stejným principem uzamčení, splňující tehdejší německé policejní požadavky: má automatickou pojistku úderníku a vybíjecí páku, zavedla ji část německých zemských policií a nizozemská policie. P88 z roku 1988 již používá uzamčení sklápěním hlavně Browningova typu, dvouřadý zásobník na 15 nábojů a oboustrannou vybíjecí páku; vyráběla se také zkrácená P88 Compact.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+Máte válečnou P38 s kódem ac, byf nebo cyq, poválečnou P1, nebo některou z policejních P4, P5 či P88? Pochlubte se svým kusem, jeho značením a stavem a napište, jak se s ním střílí.

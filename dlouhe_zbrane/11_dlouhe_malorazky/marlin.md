@@ -6,3 +6,5 @@ Malorážky americké firmy Marlin patřily po desetiletí k nejprodávanější
 Marlin 795 je levnější samonabíjecí model se stejným principem funkce, ale s odnímatelným schránkovým zásobníkem na 10 nábojů a syntetickou pažbou. Papoose (Model 70P) je rozkládací samonabíjecí malorážka se snadno odnímatelnou hlavní a schránkovým zásobníkem, určená jako lehká „survival“ či táborová zbraň. XT-22 je opakovací malorážka s válcovým odsuvným závěrem, stavitelnou spouští Pro-Fire a schránkovým zásobníkem, vyráběná i v ráži .22 WMR (XT-22M) a .17 HMR (XT-17). Po krachu skupiny Remington přešla značka Marlin v roce 2020 pod firmu Ruger, která obnovila především výrobu pákových pušek.
 
 Oficiální stránky výrobce: [www.marlinfirearms.com](https://www.marlinfirearms.com)
+
+Vlastníte některou malorážku Marlin – Model 60, 795, rozkládací Papoose nebo opakovací XT-22? Napište, jak se vám s ní střílí, jak vám vyhovuje trubicový zásobník šedesátky a k čemu zbraň nejčastěji používáte.

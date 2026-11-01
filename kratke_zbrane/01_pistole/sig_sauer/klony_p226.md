@@ -8,3 +8,5 @@ Norinco NP22 je téměř věrná kopie P226: pracuje s krátkým zákluzem hlavn
 Zastava EZ9 a EZ40 z Kragujevace nejsou přímé kopie, ale vývojové nástupkyně typů CZ 99 a CZ 999, které od P226 převzaly základní koncepci i vnější tvar. Pracují s krátkým zákluzem hlavně, mají rám z hliníkové slitiny, ocelový závěr, oboustranné ovládací prvky, indikátor náboje v komoře a lištu pro příslušenství. EZ9 je v ráži 9×19 se zásobníkem na 15 nábojů, EZ40 v ráži .40 S&W se zásobníkem na 10 nábojů. Obě značky jsou vyhledávány jako cenově dostupná alternativa originálních SIGů.
 
 Oficiální stránky výrobce: [www.zastava-arms.rs](https://www.zastava-arms.rs)
+
+Má tu někdo Norinco NP22 nebo Zastavu EZ9 či EZ40? Zajímá nás, jak obstojí ve srovnání s originálním SIGem, jak je to s kompatibilitou zásobníků a příslušenství a jak se osvědčily na střelnici.

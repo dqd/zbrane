@@ -8,3 +8,5 @@ Je komorována pro náboj 6 mm Flobert; mechanismus funguje jako u klasických f
 Původní verze byly kalibrovány na úsťovou energii do 7,5 J, odpovídající tehdejší kategorii D, a jejich prodej skončil kolem roku 2020. Novější provedení má hlaveň 11,6" a není výkonově omezeno. Celková délka zbraně je přibližně 810 mm, s vysunutou pažbou kolem 880 mm. Práce se závěrem vyžaduje určitý návyk, jinak jde o zajímavou kombinaci tradiční flobertky a moderní taktické platformy.
 
 Oficiální stránky výrobce: [flobert.cz](https://flobert.cz)
+
+Používáte California 15 k nácviku manipulace před přechodem na AR-15? Napište, jak jste si zvykli na práci se závěrem, jaké doplňky pro AR-15 jste na ni dali a zda máte původní, nebo novější verzi.

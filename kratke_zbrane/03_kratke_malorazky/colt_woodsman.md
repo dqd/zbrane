@@ -8,3 +8,5 @@ Vyráběla se ve třech sériích (první do roku 1947, druhá 1947–1955, tře
 Colt-Walther .22 je naproti tomu moderní licenční malorážková replika pistole Colt 1911, kterou pro Colt vyrábí německý Walther (skupina Umarex) od roku 2011; zachovává ovládání a rozměry „jedenáctistovky“, ale pracuje s dynamickým závěrem, závěr i rám jsou ze slitiny místo oceli a zásobník pojme 12 nábojů .22 LR. Slouží hlavně k levnému výcviku a rekreační střelbě.
 
 Oficiální stránky výrobců: [Colt](https://www.colt.com), [Walther](https://www.carl-walther.de)
+
+Máte ve sbírce Woodsman, Huntsman nebo Challenger? Pochlubte se, ze které série a v jakém stavu je, jak se s ním střílí – a případně jak si vede novodobý Colt-Walther .22 jako trenažér k „jedenáctistovce“.

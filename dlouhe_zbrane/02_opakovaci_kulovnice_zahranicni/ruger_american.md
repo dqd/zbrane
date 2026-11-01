@@ -8,3 +8,5 @@ Závěr má tři přední uzamykací ozuby a úhel otevření 70°, takže se po
 Nabízí se v široké škále ráží od .204 Ruger a .223 Rem přes .243 Win, 6,5 Creedmoor, .270 Win, .308 Win a .30-06 po .300 Win Mag a .450 Bushmaster. Mezi variantami vyniká Ranch, kompaktní karabina se zkrácenou hlavní se závitem, používající v rážích .223 Rem a .300 AAC Blackout zásobníky AR-15 a v ráži 7,62×39 zásobníky z karabiny Ruger Mini Thirty; Predator má těžší hlaveň pro lov škodné, Compact zkrácenou pažbu a Hunter zásobníky typu AICS. Od roku 2023 se vyrábí modernizovaná Generation II s nastavitelnou pažbou a drážkovanou hlavní se závitem. Příbuzná řada American Rimfire je samostatná malorážková konstrukce.
 
 Oficiální stránky výrobce: [ruger.com](https://ruger.com)
+
+Jak jste spokojeni s Ruger American Rifle? Zajímají nás hlavně zkušenosti s Ranchem na zásobníky AR-15 či Mini Thirty, s rotačním zásobníkem základní verze a se změnami, které přinesla Generation II.

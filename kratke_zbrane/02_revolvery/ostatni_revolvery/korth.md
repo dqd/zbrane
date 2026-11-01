@@ -8,3 +8,5 @@ Typické jsou šestiranné revolvery Combat a sportovní Super Sport v ráži .3
 Firma v průběhu let změnila majitele i sídlo a spolupracuje s americkou Nighthawk Custom, která se podílí na distribuci a některých modelech pro trh USA. Revolvery Korth se používají hlavně ve sportovní střelbě a jako sběratelské zbraně.
 
 Oficiální stránky výrobce: [www.kortharms.com](https://www.kortharms.com)
+
+Korth patří k revolverům, které většina z nás zná spíš z obrázků. Pokud jste s Combatem, Super Sportem, Rangerem nebo Sky Marshalem stříleli, napište, zda kvalita ruční práce odpovídá ceně a čím se liší od běžné produkce.

@@ -8,3 +8,5 @@ Pracuje s krátkým zákluzem hlavně a uzamčením Browningova typu, kdy ozuby 
 Švýcarská armáda ji zavedla jako Pistole 49, dále ji používala dánská armáda a ve verzi P210-4 západoněmecká pohraniční stráž. Po ukončení švýcarské výroby navázala německá pobočka SIG Sauer v Eckernförde modelem P210 Legend a později americká SIG Sauer vlastní výrobou P210 v několika provedeních. Verze Target jsou sportovní provedení s nastavitelnými mířidly a vyladěnou spouští. Původní švýcarské kusy, zejména ve vojenském provedení, jsou dnes vyhledávané sběratelské zbraně.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Vlastníte P210, ať už švýcarskou vojenskou Pistole 49, nebo novější Legend či americkou výrobu? Napište, jaké značení váš kus nese, jak střílí a zda podle vás pověst o přesnosti odpovídá skutečnosti.

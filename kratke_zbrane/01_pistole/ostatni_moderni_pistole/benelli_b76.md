@@ -8,3 +8,5 @@ Na rozdíl od většiny konkurentů nepoužívá Browningovo uzamčení výkyvno
 Kromě základního modelu existovala sportovní verze B76 Sport a odvozené typy pro jiné ráže, mimo jiné B80 v ráži 7,65 Parabellum a B82 v ráži 9×18 Ultra, určené pro trhy, kde byla ráže 9×19 pro civilisty omezena. Ve služební oblasti se pistole výrazněji neprosadila, dnes jde spíše o sběratelsky zajímavou zbraň ceněnou pro kvalitní zpracování a přesnost.
 
 Oficiální stránky výrobce: [www.benelli.it](https://www.benelli.it)
+
+B76 dnes potkáte spíš ve sbírce než na střelnici. Máte ji, případně B76 Sport, B80 nebo B82? Napište, jak se s ní střílí a jak se v praxi osvědčil zpožděný závěr s pevnou hlavní.

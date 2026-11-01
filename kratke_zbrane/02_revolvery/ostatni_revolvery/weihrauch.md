@@ -8,3 +8,5 @@ HW 38 a HW 357 jsou dvojčinné (DA/SA) revolvery středního rámu s výklopný
 Revolvery Weihrauch patří k cenově dostupným, robustním evropským revolverům a jsou oblíbené pro sportovní a rekreační střelbu; v USA se prodávaly i pod jinými obchodními názvy (např. EAA Windicator). K dalším revolverům značky patří např. modely HW 3, HW 5, HW 7 a HW 9.
 
 Oficiální stránky výrobce: [www.weihrauch-sport.de](https://www.weihrauch-sport.de)
+
+Většina lidí zná Weihrauch podle vzduchovek, revolvery Arminius ale mají své příznivce – střílíte s HW 38 nebo HW 357? Napište, jakou máte délku hlavně a mířidla a jak revolver obstál při sportovní a rekreační střelbě.

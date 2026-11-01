@@ -8,3 +8,5 @@ Pistole Kahr fungují na principu krátkého zákluzu s uzamčením výkyvnou hl
 Prvním modelem byla K9 s ocelovým rámem a zásobníkem na 7 nábojů 9×19, menší MK9 (Micro) má rovněž ocelový rám a zásobník na 6 nábojů. PM9 je odlehčená verze s polymerovým rámem a zásobníkem na 6 nábojů, CM9 její levnější provedení s jednodušším zpracováním a klasickým vývrtem hlavně. PM45 nabízí podobné rozměry v ráži .45 ACP se zásobníkem na 5 nábojů a P380 je nejmenší polymerová pistole v ráži .380 ACP se zásobníkem na 6 nábojů. Závěry jsou zpravidla z nerezové oceli.
 
 Oficiální stránky výrobce: [www.kahr.com](https://www.kahr.com)
+
+Nosíte Kahr? Zajímá nás, kterému modelu jste dali přednost – ocelovým K9 a MK9, nebo lehčím PM9 a CM9 – a jak jste si zvykli na dlouhou DAO spoušť.

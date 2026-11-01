@@ -10,3 +10,5 @@ SUB-2000 se vyrábí v rážích 9×19 a .40 S&W a v několika provedeních pro 
 První generace měla jednodušší polymerové tělo a mířidla, druhá generace z roku 2015 přinesla přepracované tělo, vylepšenou spoušť a mířidla a lepší možnosti montáže lišt a optiky. Třetí generace z roku 2021 má mimo jiné předpažbí s otvory M-LOK, průběžnou horní lištu Picatinny a nastavitelnou pažbu. Karabina je oblíbená jako levná doplňková zbraň ke služební nebo civilní pistoli se stejnými zásobníky.
 
 Oficiální stránky výrobce: [www.keltecweapons.com](https://www.keltecweapons.com)
+
+Používáte SUB-2000 jako doplněk ke své pistoli? Napište, kterou generaci a pro jaké zásobníky máte a jak se v praxi osvědčilo sklápění hlavně i natahování pákou pod pažbou.

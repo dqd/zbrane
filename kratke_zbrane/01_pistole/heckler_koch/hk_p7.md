@@ -8,3 +8,5 @@ Její nejznámější zvláštností je napínací páka v přední části ruko
 Původní PSP a P7 mají jednořadý zásobník na 8 nábojů 9×19 s patkovým záchytem. P7M8 přinesla záchyt zásobníku za lučíkem a tepelný štít chránící prst před horkým plynovým válcem. P7M13 je verze s dvouřadým zásobníkem na 13 nábojů a širší rukojetí. Výroba byla náročná a drahá a skončila v prvním desetiletí 21. století. P7 používaly německé policejní sbory a jednotka GSG 9; dnes je vyhledávanou sběratelskou zbraní.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Máte to štěstí a vlastníte P7? Napište, jestli je to PSP, P7M8, nebo P7M13, jak jste si zvykli na napínací páku v rukojeti a jak se při delší střelbě projevuje zahřívání plynového válce.

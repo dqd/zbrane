@@ -8,3 +8,5 @@ Původní CZ 75 Tactical Sport byla uvedena v roce 2005, jejím nástupcem se st
 Nejnovější TS 3 Orange, vyvinutá ve spolupráci s mistrem světa Ericem Grauffelem, má rám frézovaný z jednoho kusu oceli, hlaveň dlouhou 133 mm, hmotnost kolem 1450 g a jako první v řadě závěr upravený pro přímou montáž kolimátoru; míří tak na divize IPSC Optics a USPSA Limited Optics. CZ 75 TS Czechmate, představená v roce 2009, je naopak sestava pro divizi Open: pistole s kompenzátorem a kolimátorem C-More v rážích 9×19 a 9×21, dodávaná se zásobníky na 20 a 26 nábojů.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Závodíte s TS 2, TS 3 Orange nebo s Czechmate v Open? Podělte se, v jaké divizi střílíte, co jste na pistoli upravovali a jak se osvědčila přímá montáž kolimátoru u TS 3.

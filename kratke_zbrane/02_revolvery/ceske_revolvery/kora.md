@@ -8,3 +8,5 @@ Revolvery Kora jsou dvojčinné se spouští DA/SA a vnějším kohoutem, mají 
 Revolvery se prodávaly i v zahraničí, například v Itálii. Jde o malosériovou výrobu, a proto jsou tyto revolvery méně rozšířené než konkurenční Alfa Proj.
 
 Oficiální stránky výrobce: [www.korabrno.cz](https://www.korabrno.cz)
+
+Revolvery Kora potkáte méně často než Alfy, o to cennější jsou zkušenosti jejich majitelů – máte osmirannou malorážku, .38 Special, nebo některou verzi Detective či Sport? Napište, jak se s ní střílí a jak obstála.

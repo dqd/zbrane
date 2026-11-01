@@ -6,3 +6,5 @@ Taurus Tracker je řada dvojčinných revolverů brazilské firmy Taurus Armas n
 Model 627 Tracker je v ráži .357 Magnum s válcem na 7 nábojů, Model 970 Tracker malorážka v ráži .22 LR, rovněž se sedmiranným válcem. Do řady patří i Tracker v ráži .45 ACP (Model 455) s válcem na 5 nábojů, které se kvůli absenci okraje nabíjejí v půlměsíčkových sponách, jež Taurus nazývá Stellar Clip. Novější generace Trackerů byla rozšířena o další ráže včetně .44 Magnum. Trackery jsou ceněny jako cenově dostupné a dobře ovladatelné revolvery, u nichž plná lišta a pryžová pažbička usnadňují i střelbu výkonnějšími náboji.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Střílíte z Trackeru? Popište, kterou variantu máte – 627 v .357 Magnum, malorážku 970, nebo .45 ACP se Stellar Clipy – a jak se vám osvědčila na střelnici nebo v přírodě.

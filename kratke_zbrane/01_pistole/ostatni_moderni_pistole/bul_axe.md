@@ -6,3 +6,5 @@ BUL Axe je řada samonabíjecích pistolí s úderníkovým bicím mechanismem i
 Všechny verze jsou v ráži 9×19. Řada se vyrábí ve dvou velikostech: kompaktní Axe C s hlavní 102 mm a zásobníkem na 15 nábojů a plnorozměrová Axe FS se zásobníkem na 17 nábojů. Podle výbavy se rozlišují provedení Cleaver (základní), Hatchet a Tomahawk; nejvyšší Tomahawk má odlehčovací výřezy v závěru, hlubší drážkování a drážkovanou hlaveň, takže jeho závěr je znatelně lehčí.
 
 Oficiální stránky výrobce: [www.bularmory.com](https://www.bularmory.com)
+
+Střílel už někdo z vás s BUL Axe? Zajímá nás hlavně srovnání s Glockem v úchopu a spoušti a jestli se vyplatí připlatit za odlehčený závěr Tomahawk oproti základnímu Cleaveru.

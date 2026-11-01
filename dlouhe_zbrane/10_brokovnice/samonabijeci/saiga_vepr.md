@@ -8,3 +8,5 @@ Pracuje na principu odběru prachových plynů s dlouhým zdvihem pístu a otoč
 Molot Vepr 12 vyrábí od první dekády 21. století závod Molot ve Vjatských Poljanech, známý výrobou kulometů RPK. Vychází ze zesíleného pouzdra RPK a oproti Saize má záchyt závěru po vystřelení posledního náboje, upravený záchyt zásobníku pro rychlejší výměnu, delší lištu pro optiku a celkově robustnější a těžší konstrukci. Vepr 12 se díky tomu stal oblíbenou zbraní pro praktickou střelbu z brokovnice.
 
 Obě brokovnice jsou ceněny pro spolehlivost a rychlou výměnu zásobníků, kritizována bývá vyšší hmotnost a ergonomie AK, kterou mnoho střelců upravuje doplňky. Kvůli sankcím uvaleným na ruské zbraně jsou nové kusy v EU a USA prakticky nedostupné a na trhu se vyskytují hlavně použité zbraně a dovozy z doby před jejich zavedením.
+
+Kdo má doma Saigu 12 nebo Vepr 12, ať se ozve. Jak se vám osvědčily v praktické střelbě, jakými doplňky jste upravovali ergonomii AK a daří se vám ještě sehnat zásobníky?

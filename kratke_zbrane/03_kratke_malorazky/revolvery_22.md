@@ -8,3 +8,5 @@ Chiappa Plinkerton je levná italská jednočinná replika westernového revolve
 Erma ER 772 Match je německý terčový revolver z firmy Erma-Werke z Dachau, vyráběný zhruba v 70. až 90. letech, se šestiranným válcem. Alfa Steel Sport .22 (model 2263 Sport) brněnské firmy Alfa-Proj má celoocelový rám a šestiranný válec .22 LR s hlavní 6", zatímco běžné revolvery Alfa Steel v ráži .22 LR mají válec pro 9 nábojů. Hlavní rozdíly jsou tedy v systému spouště (jednočinné westernové Rugery a Chiappa vs. dvojčinné ostatní), v materiálu rámu a v kapacitě válce.
 
 Oficiální stránky výrobců: [Ruger](https://www.ruger.com), [Chiappa](https://www.chiappafirearms.com), [Kora](https://www.korabrno.cz), [Alfa-Proj](https://www.alfaproj.cz)
+
+Který malorážkový revolver máte – Single-Six, GP100 .22, Holek, Alfu, nebo terčovou Ermu ER 772? Napište, k čemu ho používáte a jestli dáváte přednost westernové jednočinné spoušti, nebo DA/SA.

@@ -8,3 +8,5 @@ Undercover se vyrábí s ocelovým rámem v brunýrovaném nebo nerezovém prove
 Firma prošla několika majiteli a bankrotem v 90. letech, poté výrobu obnovila pod názvem Charter 2000 a od roku 2005 znovu jako Charter Arms se sídlem v Sheltonu ve státě Connecticut. Revolvery Charter Arms patří k cenově dostupným americkým revolverům a od stejného rámu jsou odvozeny i další modely (např. Undercoverette v ráži .32 H&R Magnum).
 
 Oficiální stránky výrobce: [www.charterfirearms.com](https://www.charterfirearms.com)
+
+Charter Arms Undercover je levnější cesta k pětirannému .38 Special pro nošení. Jak se vám osvědčil Undercover, On Duty nebo Off Duty, v jakém pouzdře ho nosíte a jak je na tom se spolehlivostí?

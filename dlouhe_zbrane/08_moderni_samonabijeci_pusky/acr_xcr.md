@@ -8,3 +8,5 @@ Funguje na principu odběru plynů s krátkým chodem pístu a otočným závěr
 Robinson Armament (Salt Lake City, Utah) vyrábí od poloviny první dekády 21. století pušku XCR, rovněž s pístovým odběrem plynů, otočným závěrem a rychlou výměnou hlavně. Verze XCR-L je určena pro lehké ráže (5,56×45, 6,8 SPC, 7,62×39 a další), verze XCR-M pro 7,62×51 / .308 Win a příbuzné ráže, s odpovídajícími zásobníky. Obě pušky se liší hlavně výrobním zázemím a dostupností – XCR vyrábí menší firma v menších sériích s důrazem na multiráži, zatímco ACR byla sériovým produktem velkého koncernu.
 
 Oficiální stránky výrobců: [Bushmaster](https://www.bushmaster.com), [Robinson Armament](https://robinsonarmament.com)
+
+Zajímají nás zkušenosti s ACR od Bushmasteru i s Robinson XCR – jak funguje výměna hlavně a změna ráže v praxi, kterou ráži používáte nejčastěji a jak je to s dostupností dílů.

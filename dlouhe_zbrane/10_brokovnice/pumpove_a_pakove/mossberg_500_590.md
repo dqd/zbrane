@@ -10,3 +10,5 @@ Mossberg 590 je zesílená služební verze s delším zásobníkem uzavřeným 
 Mossberg 500 byl kopírován řadou výrobců, zejména v Turecku a Číně. Ukrajinská Fort-500 s Mossbergem navzdory názvu nesouvisí – vychází z Remingtonu 870 a má vlastní téma.
 
 Oficiální stránky výrobce: [www.mossberg.com](https://www.mossberg.com)
+
+Mossberg 500, služební 590A1, nebo levný Maverick 88? Podělte se, jaké provedení máte, k čemu ho používáte a které hlavně, pažby či další díly jste na něm vyměnili.

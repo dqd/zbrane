@@ -10,3 +10,5 @@ Vyrábí se v ráži 9×19; plnorozměrná verze (Full Size) má zásobník na 1
 PDP F-Series z roku 2022 je upravená verze navržená pro střelce s menšíma rukama, především ženy: má menší obvod úchopu, kratší vzdálenost ke spoušti, snadněji natahovatelný závěr a zásobník na 15 nábojů. Díky kombinaci odolného služebního provedení a sportovních vlastností je PDP oblíbená u civilních, sportovních i služebních střelců.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+Přešli jste na PDP z PPQ, nebo je to váš první Walther? Podělte se o zkušenosti se spouští, s kolimátorem na závěru a s kombinací rámu a délky závěru, případně jak se osvědčila F-Series.

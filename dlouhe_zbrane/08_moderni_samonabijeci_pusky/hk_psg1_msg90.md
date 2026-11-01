@@ -8,3 +8,5 @@ Standardní výbavou byl puškohled Hensoldt 6×42, zásobníky pojmou 5 nebo 20
 PSG1 je velmi přesná, ale také těžká (přes 8 kg s optikou) a drahá, proto vznikla MSG90 (Militärisches Scharfschützengewehr), lehčí a levnější verze z konce 80. let určená především pro armádní použití. MSG90 má lehčí hlaveň, jednodušší pažbu a univerzální montáž pro různé zaměřovače; vznikla i verze MSG90A1 s mechanickými mířidly. Obě pušky používaly policejní protiteroristické a zásahové jednotky a speciální armádní útvary v řadě zemí. Civilní dostupnost je omezená a ceny na trhu vysoké, PSG1 patří mezi sběratelsky ceněné moderní pušky.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+Měli jste možnost střílet s PSG1 nebo MSG90? Popište přesnost, spoušť a ergonomii stavitelné pažby, případně v čem se liší lehčí MSG90 – a pokud některou vlastníte, pochlubte se.

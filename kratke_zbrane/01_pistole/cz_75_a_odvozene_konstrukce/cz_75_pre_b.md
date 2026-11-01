@@ -6,3 +6,5 @@ Jako pre-B se označují pistole CZ 75 vyrobené před zavedením automatické p
 Princip je stejný jako u pozdějších modelů: krátký zákluz hlavně s uzamčením Browningova typu, závěr vedený uvnitř rámu, ocelová konstrukce a spoušť DA/SA s vnějším kohoutem a manuální pojistkou. Náboj 9×19, zásobník původně na 15 nábojů.
 
 Starší kusy se poznají podle zaobleného lučíku, kohoutu bez oka a charakteristických tvarů závěru, které jim vysloužily přezdívku „kulatý závěr“. Nejcennější je první série takzvaných short rail pistolí (přibližně do roku 1980) s kovaným rámem a krátkými vodicími lištami, kterých vzniklo zhruba 20 tisíc; následující long rail verze mají rám odlévaný, delší vedení závěru a bezpečnostní ozub kohoutu. Sběratelé rozlišují i další podskupiny, například kusy bez typového nápisu nebo pistole přezdívané „Bauska“, tedy pozdní pistole staré konstrukce bez pojistky úderníku. Pre-B pistole jsou dnes vyhledávané pro svou historickou hodnotu, jemnou spoušť a kvalitu zpracování.
+
+Pochlubte se svými pre-B pětasedmdesátkami – jde o short rail, long rail, nebo pozdní Bausku? Zajímá nás, podle čeho jste kus určili, v jakém je stavu a jestli s ním ještě chodíte střílet.

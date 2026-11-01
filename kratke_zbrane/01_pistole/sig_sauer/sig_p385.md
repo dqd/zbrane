@@ -8,3 +8,5 @@ Pistole má úderníkový mechanismus (striker), jako první SIG pojistku ve spo
 Pistole používá zásobníky P320; větší provedení se dodávají se zásobníky na 17 a 21 nábojů, Compact s kratším úchopem se zásobníky na 15 nábojů. Nabídku tvoří modely Full s hlavní 4,7 palce, Carry a Compact s hlavní 4 palce a kompenzované verze Comp a MACH3D. Závěr je připraven pro montáž kolimátoru. Vzhledem k novosti modelu zatím nejsou k dispozici dlouhodobé zkušenosti z provozu.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+P385 je na trhu teprve krátce, takže má cenu každá zkušenost – pokud jste ji už drželi nebo stříleli, napište, jak působí spoušť, jak funguje tlumení zpětného rázu SRDS a zda byste ji volili místo P320 nebo P365.

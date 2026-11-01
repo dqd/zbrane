@@ -6,3 +6,5 @@ Rossi je brazilská zbrojovka Amadeo Rossi, založená v roce 1889 italským pu�
 Koncem 90. let převzala výrobu krátkých zbraní značky Rossi brazilská firma Taurus a současné revolvery Rossi jsou s modely Taurus konstrukčně příbuzné. Značka se v Evropě i USA uplatňuje hlavně v nižší cenové kategorii – revolvery Rossi jsou oblíbené jako levná zbraň pro sebeobranu, výcvik a rekreační střelbu. Kromě revolverů je Rossi známá také pákovými puškami a jednorannými zbraněmi.
 
 Oficiální stránky výrobce: [www.rossi.com.br](https://www.rossi.com.br)
+
+Máte některý z revolverů Rossi – pětiranný 68, 88 či R351, nebo šestiranný 971 či RP63? Podělte se, k čemu ho používáte, jak se osvědčil a zda za své peníze nabízí dost.

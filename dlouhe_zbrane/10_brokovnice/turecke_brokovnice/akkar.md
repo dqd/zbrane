@@ -6,3 +6,5 @@ Akkar je turecký výrobce brokovnic založený v roce 1989, který začínal se
 Karatay je řada pumpových brokovnic v rážích 12, 20 a 28 s trubicovým zásobníkem pod hlavní, od loveckých po taktická provedení (např. Karatay 612 TAC). Altay je řada plynových samonabíjecích brokovnic ve stejných rážích, rovněž v loveckých i taktických verzích (Altay 212 TAC). Pumpy a samonabíjecí zbraně mají obvykle pouzdro ze slitiny hliníku, ocelovou hlaveň s chromovaným vývrtem, výměnné sbíhavosti a pažbu z tureckého ořechu nebo polymeru. Churchill 206 je první sklápěcí řada firmy, uvedená v roce 2005 – kozlice v ráži 12/76 s ocelovým rámem, jednospouští s volbou hlavně, vyhazovači a výměnnými sbíhavostmi, v loveckém i sportovním (Sporting) provedení.
 
 Oficiální stránky výrobce: [www.akkar.com.tr](https://www.akkar.com.tr)
+
+Pod jakou značkou se k vám Akkar dostal – jako pumpa Karatay, samonabíjecí Altay, nebo kozlice Churchill 206? Podělte se, jak se tyto turecké brokovnice osvědčily na honu či na střelnici a jak jste spokojeni se zpracováním.

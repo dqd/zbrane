@@ -8,3 +8,5 @@ Mauser HSc (Hahn-Selbstspanner, model c) z oberndorfské zbrojovky se vyznačuje
 Sauer 38H od firmy J. P. Sauer & Sohn ze Suhlu (H znamená Hahn, kohout) přinesla na tehdejší dobu pokrokovou páku na levé straně rámu, kterou lze kohout bezpečně natáhnout i spustit. Vyráběla se od roku 1938 do konce války a sloužila především u policie a jako důstojnická zbraň Wehrmachtu. Hlavní rozdíl mezi oběma pistolemi je tedy v ovládání kohoutu: HSc spoléhá na klasickou dvojčinnou spoušť a pojistku na závěru, 38H na páku pro natažení a bezpečné spuštění kohoutu.
 
 Oficiální stránky výrobce: [J. P. Sauer & Sohn](https://www.sauer.de)
+
+HSc, nebo 38H – kterou z těchto dvou odpovědí na Walther PP máte ve sbírce? Napište, zda jde o válečný kus, nebo poválečné HSc, jaká značení nese a jak se vám osvědčila páka kohoutu u Saueru.

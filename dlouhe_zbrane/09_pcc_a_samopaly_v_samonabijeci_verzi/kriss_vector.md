@@ -8,3 +8,5 @@ Uzamčení je řešeno jako polovolný (oddálený) závěr. Hlaveň leží níz
 Samonabíjecí verze se vyrábějí jako karabina CRB s hlavní 16 palců, pistole SDP s krátkou hlavní a SBR. Samopalovou verzi v režimu dávkové střelby používají v menším rozsahu některé policejní jednotky a ozbrojené složky, širší popularitu ale Vector získal především na civilním trhu díky futuristickému vzhledu a výskytu ve filmech a videohrách.
 
 Oficiální stránky výrobce: [kriss-usa.com](https://kriss-usa.com)
+
+Jak se Vector se systémem Super V chová ve skutečnosti? Pokud vlastníte CRB nebo SDP, napište, kterou ráži jste zvolili, jak moc je u .45 ACP znát menší zdvih a jak jste spokojeni se zásobníky Glock.

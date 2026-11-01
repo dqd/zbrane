@@ -8,3 +8,5 @@ Závěr má dva přední uzamykací ozuby a tlačné podávání se zapuštěný
 Varianty se liší hlavně pažbou, hlavní a povrchovou úpravou: SPS je základní verze se syntetickou pažbou, CDL klasická lovecká s ořechovou pažbou, XCR nerezová s odolnou povrchovou úpravou pro náročné podmínky, VTR má hlaveň trojúhelníkového průřezu s integrovanou brzdou a Police a Target Tactical jsou policejní a sportovně-taktické verze s těžkou hlavní. Na systému 700 jsou postaveny i odstřelovačské pušky M24 americké armády a M40 námořní pěchoty USA. Po insolvenci Remingtonu v roce 2020 pokračuje výroba pod firmou RemArms.
 
 Oficiální stránky výrobce: [www.remington-arms.com](https://www.remington-arms.com)
+
+Na systému Remington 700 staví spousta střelců – jakou verzi máte vy, SPS, CDL, XCR, nebo některou z policejních? Napište, co jste na ní upravovali a jak jste naložili s původní spouští Walker.

@@ -8,3 +8,5 @@ První generace se vyráběla v rážích 9×19 (zásobník na 17 nábojů), .40
 Pistole M&P používá řada policejních sborů v USA i jinde a patří k hlavním konkurentům Glocku na americkém služebním trhu. Na stejné platformě vznikla i štíhlá řada M&P Shield.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Střílíte s M&P první generace, nebo s M2.0? Zajímá nás, jak je znát rozdíl ve spoušti a textuře úchopu, kterou velikost používáte a jak si M&P podle vás stojí ve srovnání s Glockem.

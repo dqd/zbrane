@@ -8,3 +8,5 @@ Pistole pracuje na principu krátkého zákluzu se sklopnou hlavní, jejíž ná
 Na trh přišla v první polovině 20. let 21. století jako odpověď CZ na rostoucí oblibu velmi tenkých pistolí pro každodenní nošení, kde soupeří například s Glockem 43 nebo pistolemi typu Smith & Wesson Shield. Oproti dvouřadým mikrokompaktům má nižší kapacitu, je však tenčí a snáze se skrývá pod oblečením.
 
 Oficiální stránky výrobce: [www.czub.cz](https://www.czub.cz)
+
+Nosí někdo P-10 M denně? Zajímá nás, jak se vám s ní střílí, v jakém pouzdře ji nosíte a zda vám tenčí profil vyváží nižší kapacitu 7 nábojů oproti dvouřadým mikrokompaktům.

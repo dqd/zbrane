@@ -6,3 +6,5 @@ Obě vzduchovky pocházejí od americké firmy Crosman a jsou poháněny CO2 z d
 Crosman DPMS SBR byla představena v lednu 2018 ve spolupráci s výrobcem AR-15 DPMS Panther Arms a napodobuje krátkou karabinu DPMS. Střílí ocelové kuličky BB ráže 4,5 mm a umožňuje jak jednotlivou střelbu, tak plně automatickou palbu s kadencí kolem 1400 ran za minutu. Obě bombičky CO2 i kuličky jsou uloženy ve vyjímatelném zásobníku, který v sériovém provedení pojme 25 kuliček (původně byla avizována kapacita 30). Úsťová rychlost dosahuje přibližně 130 m/s. Zatímco 1077 je praktická a poměrně přesná zbraň na diabolky, DPMS SBR je především zábavní replika s věrným vzhledem a automatickou palbou.
 
 Oficiální stránky výrobce: [www.crosman.com](https://www.crosman.com)
+
+Crosman 1077, nebo DPMS SBR – co z toho máte v ruce častěji? Napište, jaká je přesnost a spotřeba bombiček a jak vás baví automatická palba z DPMS SBR.

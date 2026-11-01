@@ -8,3 +8,5 @@ Původní PPS měla jednořadé zásobníky tří délek – v ráži 9×19 na 6
 Modernizovaná PPS M2 z roku 2016 se vyrábí pouze v ráži 9×19 se zásobníky na 6, 7 a 8 nábojů, má tlačítkový záchyt zásobníku podle amerických zvyklostí, zaoblenější tvary, přepracovanou texturu úchopu a lehčí, plynulejší spoušť inspirovanou řadou PPQ; systém QuickSafe byl vypuštěn. Díky malé šířce, nízké hmotnosti a dobré ergonomii patří PPS k oblíbeným pistolím pro skryté nošení.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+Nosíte původní PPS, nebo novější PPS M2? Zajímá nás, jak se vám osvědčila pro skryté nošení, který zásobník používáte nejčastěji a zda vám u M2 chybí pákový záchyt nebo systém QuickSafe.

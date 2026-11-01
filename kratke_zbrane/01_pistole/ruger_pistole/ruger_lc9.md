@@ -8,3 +8,5 @@ LC380 z roku 2013 je stejně velká pistole v ráži .380 ACP, která díky slab
 MAX-9 z roku 2022 je novější konstrukce, příbuzná kapesní LCP MAX: při rozměrech blízkých LC9s má zásobník s přechodem ze dvou řad do jedné na 10 nebo 12 nábojů 9×19, úderníkový mechanismus, závěr připravený pro kolimátor a volitelně manuální pojistku. Celá řada je oblíbená jako cenově dostupná zbraň pro skryté nošení; zatímco starší LC9 a LC380 jsou ceněny pro malou šířku, MAX-9 reaguje na trend mikrokompaktů s vyšší kapacitou.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Nosíte některou pistoli z řady LC9, LC9s a LC380, nebo novější MAX-9? Podělte se, jak se osvědčila při skrytém nošení a jestli byste dnes dali přednost štíhlé LC9s, nebo kapacitě MAX-9.

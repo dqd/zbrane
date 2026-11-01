@@ -8,3 +8,5 @@ ProArmis ProDynamic ze slovinského Mariboru je naopak špičková závodní pis
 Cobra Patriot .45 firmy Cobra Enterprises z Utahu, původně Republic Arms Patriot konstruktéra Nehemiaha Sirkise, je malá polymerová pistole se spouští DAO, nerezovým závěrem a zásobníkem na 6 nábojů .45 ACP; výrobce již zanikl.
 
 Oficiální stránky výrobců: [AHSS](https://ahss.com.tr), [Emtan](https://emtan.co.il), [ProArmis](https://www.proarmis.si), [Créapeiron](https://creapeiron.com)
+
+Máte některou z méně známých pistolí – FXS-9, Ramon, ProDynamic, Elysien nebo Cobra Patriot? Napište, jak jste k ní přišli a jak se osvědčila; uvítáme i tipy na další modely, které by sem patřily.

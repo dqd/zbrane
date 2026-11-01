@@ -8,3 +8,5 @@ Napíná se klasicky zlomením hlavně, které stlačí pružinu s pístem ve v�
 Výroba probíhala ve dvou hlavních generacích: první od roku 1953 do poloviny 60. let, poté modernizovaná verze, která se vyráběla až do roku 1987. Pozdější provedení nesla označení například 35, 35M či 35S a lišila se především tvarem pažby a výbavou. V době uvedení na trh byl výkon kolem 15 J v ráži 5,5 mm považován za mimořádný, ke konci výroby už ale Dianu 35 výkonem předstihly novější konstrukce. Zbraň se prodávala i pod jinými značkami, například jako Hy-Score 809 nebo Winchester 435 na americkém trhu. Dnes jde o vyhledávanou klasiku pro sběratele a renovace, oceňovanou pro robustní celokovovou konstrukci a jednoduchou údržbu.
 
 Oficiální stránky výrobce: [www.diana-airguns.de](https://www.diana-airguns.de)
+
+Renovoval někdo Dianu 35? Napište, z jaké generace je váš kus, co bylo potřeba vyměnit, jaké diabolky jí sedí a jestli máte i americkou verzi Hy-Score 809 nebo Winchester 435.

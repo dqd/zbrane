@@ -8,3 +8,5 @@ Závěr je válcový odsuvný s předním uzamčením, pouzdro je z hliníkové 
 Varianty se liší hlavně délkou: základní SRS a modernizované SRS A1 a SRS A2 mají delší hlaveň pro střelbu na velké vzdálenosti, SRS Covert je zkrácená verze s kratší hlavní a upravenou pažbou pro nasazení na kratší vzdálenosti, např. v zastavěném prostoru. Zbraň zaujala zejména policejní jednotky a sportovní long range střelce.
 
 Oficiální stránky výrobce: [deserttech.com](https://deserttech.com)
+
+Má někdo zkušenosti s bullpupem DTA SRS nebo zkrácenou SRS Covert? Napište, jak se vám s ním střílí, jak spolehlivě drží nastřelení optiky po výměně hlavně a v jakých rážích ho provozujete.

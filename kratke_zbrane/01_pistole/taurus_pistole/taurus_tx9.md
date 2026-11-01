@@ -8,3 +8,5 @@ Pracuje s krátkým zákluzem hlavně a jejím sklápěním, spoušť je jednoč
 Pistole cílí na civilní i služební trh jako cenově dostupná alternativa ke Glocku 17/19 či modulární SIG P320. Vzhledem k novosti modelu jsou dlouhodobé zkušenosti z provozu zatím omezené.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+TX9 je zatím poměrně nová, takže se hodí každý poznatek – střílel někdo z vás s verzí Full Size nebo Compact? Zajímá nás spoušť, montáž kolimátoru přes T.O.R.O. a srovnání s Glockem 17/19 nebo P320.

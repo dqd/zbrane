@@ -8,3 +8,5 @@ Pistole pracuje na principu krátkého zákluzu se sklopnou hlavní uzamykanou v
 Hlaveň o délce 84 mm (3,32 palce) je kována za studena v Německu a má polygonální vývrt. Pistole je určena pro náboj 9×19 a dodává se se dvěma zásobníky: zarovnaným na 10 nábojů a prodlouženým na 12 nábojů. Hmotnost bez zásobníku je asi 520 g. Závěr je z výroby připravený pro montáž malého kolimátoru a pistole má tritiovou mušku. Nezaměňovat s pistolí VP9CC, která je kompaktní verzí řady VP9.
 
 Oficiální stránky výrobce: [www.heckler-koch.com](https://www.heckler-koch.com)
+
+CC9 je novinka, takže každé první dojmy přijdou vhod. Pokud ji už nosíte, napište, jak obstála ve srovnání s Glockem 43X, P365 nebo Hellcatem, kterému zásobníku dáváte přednost a v jakém pouzdře ji máte.

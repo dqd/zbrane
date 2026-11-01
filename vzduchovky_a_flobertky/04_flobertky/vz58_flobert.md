@@ -6,3 +6,5 @@ Téma se týká civilních zbraní, které vzhledem, rozměry a ovládáním vyc
 Flobertový náboj nemá dostatek energie k pohonu plynového ani zákluzového mechanismu, takže flobertové verze vz. 58 nejsou samonabíjecí v pravém smyslu a mezi výstřely se zpravidla přebíjejí ručně. Vnější díly – ocelové pouzdro, dřevěná, plastová nebo sklopná pažba, rukojeť, mířidla i zásobník – zůstávají věrné originálu, takže zbraň působí autenticky a lze s ní trénovat manipulaci, míření a základní návyky bez hluku a nákladů na ostré střelivo. Náboj 6 mm Flobert je tichý, levný a vhodný pro střelbu na krátkou vzdálenost, například na zahradě nebo na kryté střelnici.
 
 Kvůli výraznému vzhledu jsou tyto zbraně oblíbené mezi sběrateli a příznivci vz. 58, kteří chtějí doplnit sbírku o levnou verzi pro rekreační střelbu. Při koupi je dobré ověřit, zda jde o přestavbu původního samopalu, nebo o nově vyrobenou zbraň, a jak je zbraň zařazena podle platné legislativy.
+
+Vlastníte vz. 58 v 6 mm Flobert? Napište, zda jde o přestavbu, nebo nově vyrobenou zbraň, jak se s ní střílí a jestli ji používáte spíš k tréninku manipulace, nebo k zábavě na zahradě.

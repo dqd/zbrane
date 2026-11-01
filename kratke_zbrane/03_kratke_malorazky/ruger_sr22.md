@@ -6,3 +6,5 @@ Ruger SR22 a LCP II .22 jsou kompaktní malorážkové pistole americké firmy S
 LCP II .22, představená v roce 2019, je malorážková verze ultrakompaktní kapesní pistole LCP II: má polymerový rám, jednočinnou spoušť s vnitřním kohoutem a zásobník pro 10 nábojů. Je určena především jako levný trenažér pro majitele velkorážové LCP II a pro rekreační střelbu, případně jako velmi malá záložní zbraň. Hlavní rozdíl je tedy ve velikosti a spoušti – SR22 je větší, přesnější a pohodlnější pistole s DA/SA, LCP II .22 výrazně menší kapesní zbraň s jednočinnou spouští.
 
 Oficiální stránky výrobce: [www.ruger.com](https://www.ruger.com)
+
+Používáte SR22 nebo LCP II .22? Napište, jak se s nimi střílí, jak jsou spolehlivé s různým střelivem a jestli LCP II .22 opravdu poslouží jako trenažér k velkorážové verzi.

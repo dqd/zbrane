@@ -8,3 +8,5 @@ P226 Classic 22 je malorážková pistole v plné velikosti a s ovládáním P22
 SIG Sauer P322 je moderní pistole americké pobočky SIG Sauer, uvedená v roce 2020, s polymerovým rámem, jednočinnou spouští, závěrem připraveným pro montáž kolimátoru, závitovou hlavní a zásobníkem pro 20 nábojů. Hlavní rozdíly: Mosquito a Classic 22 napodobují P226 (menší, resp. plnorozměrová), P322 je samostatná konstrukce s vysokou kapacitou a jednočinnou spouští.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Máte SIG Mosquito, P226 Classic 22 nebo P322? Podělte se, jaké střelivo vám v Mosquitu funguje, jak se Classic 22 hodí k tréninku s P226 a jak jste spokojeni s dvacetiranným P322.

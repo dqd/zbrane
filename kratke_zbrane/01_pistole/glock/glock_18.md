@@ -8,3 +8,5 @@ Konstrukčně vychází z G17: pracuje na principu krátkého zákluzu se sklopn
 Kadence je velmi vysoká, přibližně 1100–1200 ran za minutu, takže standardní zásobník na 17 nábojů 9×19 se vyprázdní za necelou sekundu; používají se proto i prodloužené zásobníky na 31 či 33 nábojů. Zbraň je kvůli vysoké kadenci a nízké hmotnosti obtížně ovladatelná, a proto vznikla verze Glock 18C s kompenzačními otvory v hlavni a závěru, která omezuje zdvih zbraně. Díly závěru a rámu nejsou zaměnitelné s G17, aby se zabránilo neoprávněné přestavbě. Glock 18 se dodává výhradně ozbrojeným složkám a speciálním jednotkám a pro civilní střelce je v praxi nedostupný; je známý spíše z filmů a počítačových her než ze střelnic.
 
 Oficiální stránky výrobce: [www.glock.com](https://www.glock.com)
+
+Glock 18 se k civilním střelcům v praxi nedostane – střílel s ním někdo z vás ve službě? Podělte se, jak se dá zvládnout dávka při kadenci přes tisíc ran za minutu a jestli je kompenzovaná G18C znatelně ovladatelnější.

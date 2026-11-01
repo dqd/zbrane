@@ -6,3 +6,5 @@ Pistole Drulov jsou české jednoranné terčové pistole, jejichž výroba sah�
 Původně byly určeny pro malorážkový náboj .22 LR, flobertová provedení v ráži 4 mm a 6 mm Flobert ale umožňují cvičnou střelbu na krátkou vzdálenost i ve vnitřních prostorách, protože flobertový náboj je slabý, tichý a levný. Dlouhá hlaveň a velká záměrná vzdálenost dávají i se slabým střelivem dobrou přesnost, a pistole proto zůstávají oblíbené pro „pokojovou“ terčovou střelbu.
 
 Jednotlivé modely se liší především tvarem rukojeti, provedením mířidel, spouště a povrchové úpravy: Drulov 70 je starší typ, Drulov 75 jeho zdokonalené a nejrozšířenější pokračování a Drulov 90 pozdější modernizace. Kvůli jednoduché konstrukci jsou to spolehlivé a dlouhověké zbraně, které se dnes běžně objevují na bazarech.
+
+Střílíte doma z Drulovu ve flobertové ráži? Napište, jestli máte 70, 75, nebo 90, zda dáváte přednost 4 mm, nebo 6 mm Flobert a jakou přesnost pistole dává při pokojové střelbě.

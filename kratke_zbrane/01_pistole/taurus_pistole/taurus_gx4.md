@@ -8,3 +8,5 @@ Pracuje s krátkým zákluzem hlavně a jejím sklápěním, má úderníkový m
 Řadu doplňují verze s přípravou pro kolimátor (T.O.R.O. – Taurus Optic Ready Option), GX4 XL s delším závěrem a hlavní pro lepší mířicí vzdálenost a GX4 Carry s delší rukojetí, která pojme větší zásobník a lépe se drží. Pistole se v USA etablovala jako cenově výrazně dostupnější alternativa k mikrokompaktům SIG P365, Springfield Hellcat nebo Smith & Wesson Shield Plus a je oceňována za dobrou spoušť a spolehlivost v poměru k ceně.
 
 Oficiální stránky výrobce: [www.taurususa.com](https://www.taurususa.com)
+
+Je GX4 opravdu plnohodnotnou levnější alternativou k P365 a Hellcatu? Pokud ji nosíte – základní, XL nebo Carry – napište, jak se osvědčila v pouzdře, jak je na tom se spolehlivostí a co říkáte na spoušť.

@@ -8,3 +8,5 @@ Jádrem konstrukce je uzamčení AF-Speedlock: hlaveň se po výstřelu nevyklá
 Na konstrukci navázaly pistole Stryk A a Stryk B, na americkém trhu známé jako Archon Type A a Type B; americká pobočka Arsenal Firearms byla v roce 2018 přejmenována na Archon Firearms. Type B je kompaktnější model s polymerovou rukojetí s ocelovou vložkou, nitridovaným závěrem, hlavní 4,3″ a zásobníkem na 15 nábojů 9×19 (k dispozici i 12 a 18); generace Gen 2 přinesla modulární rukojeť a závěr připravený pro kolimátor. Výrobu zpočátku smluvně zajišťovala švýcarská firma RUAG, dnes probíhá ve vlastním závodě Archon Firearms s.r.o. v Česku.
 
 Oficiální stránky výrobce: [archonfirearms.com](https://archonfirearms.com)
+
+Když se Archon Type B vyrábí u nás v Česku, nemůže tu chybět debata o něm. Napište, jak se v praxi projevuje uzamčení AF-Speedlock a nízko položená osa hlavně a jak hodnotíte spoušť.

@@ -8,3 +8,5 @@ Pistole funguje na principu krátkého zákluzu hlavně, má úderníkový bicí
 Výrobce zdůrazňuje ergonomii: oboustranné ovladače zásobníku fungují nezávisle na sobě, záchyt závěru je posunut dozadu, zadní část závěru má rozšířenou plochu pro natahování a zásobník ukazuje počet zbývajících nábojů. Zbrojíř může nastavit odpor i chod spouště a pistoli lze rozebrat bez stisknutí spouště. Verze HiPer MRD má závěr připravený pro kolimátor.
 
 Oficiální stránky výrobce: [www.fnherstal.com](https://www.fnherstal.com)
+
+HiPer se na civilní trh nedostane, ale třeba ji někdo z vás potkal ve službě. Jak hodnotíte ergonomii, ukazatel nábojů v zásobníku a nastavitelnou spoušť ve srovnání s tím, na co jste zvyklí?

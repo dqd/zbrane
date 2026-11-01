@@ -8,3 +8,5 @@ Plnorozměrová verze má ocelový rám a hlaveň dlouhou 5 palců (127 mm), vyr
 Pistole byla představena v roce 2019, k prodejcům se však ve větším množství dostala až o několik let později. Novější provedení mají závěr upravený pro montáž kolimátoru.
 
 Oficiální stránky výrobce: [danwessonfirearms.com](https://danwessonfirearms.com)
+
+Dostala se vám už do ruky DWX nebo DWX Compact? Podělte se o dojmy ze spouště, zkušenosti ze soutěží IPSC či USPSA a o to, jak v praxi funguje sdílení zásobníků s P-09, P-10 F a CZ 75 Compact.

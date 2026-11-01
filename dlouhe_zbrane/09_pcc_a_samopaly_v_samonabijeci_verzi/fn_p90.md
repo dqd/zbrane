@@ -8,3 +8,5 @@ P90 pracuje s neuzamčeným dynamickým závěrem a střílí z uzavřeného zá
 Vojenské a policejní verze umožňují střelbu dávkou a používají je speciální jednotky, policie a ochranné služby ve více než čtyřiceti zemích, mimo jiné v Belgii, Francii nebo USA. PS90 je civilní samonabíjecí karabina odvozená z P90, nabízená hlavně v USA, s hlavní prodlouženou na 16 palců (406 mm), aby splňovala tamní předpisy, a podle trhu i se zásobníkem omezené kapacity. Mechanicky odpovídá P90, chybí jí však režim dávkové střelby; starší kusy měly integrovaný kolimátor, novější lištu Picatinny.
 
 Oficiální stránky výrobce: [fnherstal.com](https://fnherstal.com)
+
+Střílí tu někdo s PS90, případně měl v ruce služební P90? Zajímá nás, jak se s bullpupem a vodorovným padesátiranovým zásobníkem pracuje v praxi a jak jste spokojeni s nábojem 5,7×28.

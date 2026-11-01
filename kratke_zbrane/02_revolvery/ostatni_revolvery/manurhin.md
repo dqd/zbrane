@@ -8,3 +8,5 @@ Vyrábí se s hlavněmi různé délky (zhruba od 2,5" do 10") ve služebních (
 Model MR88 vznikl koncem 80. let jako levnější a výrobně jednodušší služební revolver vycházející z konstrukce Ruger Security-Six, vyráběný v ocelovém i nerezovém provedení v rážích .357 Magnum a .38 Special. Revolvery Manurhin dnes vyrábí firma Chapuis Armes v Saint-Bonnet-le-Château, do USA je dováží Beretta.
 
 Oficiální stránky výrobce: [www.chapuis-armes.com](https://www.chapuis-armes.com)
+
+Máte MR73 ve služební verzi Gendarmerie, sportovní Match, nebo levnější MR88? Napište, jak hodnotíte proslulou spoušť, zda jste zkoušeli seřizovat její odpor a jestli je rozdíl oproti běžným revolverům opravdu tak znát.

@@ -6,3 +6,5 @@ Kimber K6s je kompaktní revolver americké firmy Kimber, představený v roce 2
 Válec je výklopný doleva, nábojnice se vyhazují hvězdicovým vyhazovačem. Původní verze měla skrytý kohout a pouze dvojčinnou spoušť (DAO) s plynulým chodem; později přibyly verze DA/SA s vnějším kohoutem a hlavněmi délky 2, 3 a 4 palce, lišící se mířidly a střenkami. Zaoblené hrany a kompaktní rozměry usnadňují skryté nošení. K6s se vyrábí v USA a je určen především pro sebeobranu a jako záložní zbraň, delší verze i pro rekreační střelbu.
 
 Oficiální stránky výrobce: [www.kimberamerica.com](https://www.kimberamerica.com)
+
+Šest nábojů .357 Magnum v rozměrech pětiranného revolveru – jak to vypadá v praxi? Pokud K6s nosíte nebo s ním střílíte, napište, kterou verzi máte, jak zvládáte zpětný ráz Magnumů a jak se vám nosí.

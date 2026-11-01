@@ -8,3 +8,5 @@ Model 5 z období kolem první světové války je vylepšenou verzí Modelu 2 z
 Po válce připadlo Zella-Mehlis do sovětské okupační zóny a firma se znovu etablovala až v Ulmu, kde se tyto modely již nevyráběly. Pistole sloužily především jako civilní zbraně k sebeobraně a skrytému nošení. Dnes jsou vyhledávanými sběratelskými kusy; hodnotu ovlivňuje zejména stav, zachovalost původní povrchové úpravy a varianty značení či střenek.
 
 Oficiální stránky výrobce: [www.carl-walther.com](https://www.carl-walther.com)
+
+Máte ve sbírce kapesní Walther Model 5, 8 nebo 9? Pochlubte se, v jakém stavu je povrchová úprava, jaké značení a střenky váš kus nese a zda se vám podařilo dohledat něco o jeho historii.

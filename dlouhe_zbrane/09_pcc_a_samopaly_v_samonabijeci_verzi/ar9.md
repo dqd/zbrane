@@ -10,3 +10,5 @@ Italská ADC (Armi Dallera Custom z Concesia) vyrábí řadu AR9 od základních
 CMMG Banshee používá vlastní systém oddáleného závěru Radial Delayed Blowback a vyrábí se i v jiných pistolových rážích. FM Products (Foxtrot Mike) se proslavila hlavně dolními pouzdry FM-9, dnes nabízenými pod názvem Mike-9, s vlastními bočními natahovacími pouzdry. Délka hlavně se u všech pohybuje zhruba od 7 do 16 palců.
 
 Oficiální stránky výrobců: [ADC](https://adccustom.com), [V-AR](https://v-ar.cz), [New Frontier Armory](https://www.newfrontierarmory.com), [CMMG](https://cmmg.com), [FM Products](https://fm-products.com)
+
+Na jaké AR-9 střílíte a pro jaké zásobníky? Zajímá nás hlavně rozdíl mezi dynamickým a bržděným závěrem v praxi, zkušenosti z divize PCC v IPSC a jak jste spokojeni s ADC, V-AR 9 nebo CMMG Banshee.

@@ -8,3 +8,5 @@ Konstrukčně vycházejí z klasických kovových SIGů: krátký zákluz hlavn�
 Pistole se vyráběly v Evropě a později také v USA. SP2022 si ve velkém počtu zvolila francouzská národní policie a četnictvo a používají ji i další bezpečnostní složky; díky příznivé ceně patří k oblíbeným služebním i civilním pistolím s dvojčinnou spouští.
 
 Oficiální stránky výrobce: [www.sigsauer.com](https://www.sigsauer.com)
+
+Kdo z vás střílí s SP2022 nebo starší SP2009? Podělte se, jak vám vyhovuje dvojčinný první výstřel, jak se pistole drží s různými střenkami a jak obstála po letech používání.

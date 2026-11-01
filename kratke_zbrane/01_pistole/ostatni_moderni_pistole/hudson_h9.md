@@ -8,3 +8,5 @@ Pistole funguje na principu krátkého zákluzu, má plochý jazýček spouště
 Kvůli finančním potížím, soudním sporům a problémům s kvalitou některých dílů firma Hudson v roce 2019 zbankrotovala. Patenty získala na konkurzní aukci firma Daniel Defense z Georgie, která v roce 2024 uvedla přepracovanou verzi Daniel H9 s rukojetí z hliníkové slitiny 7075, sériovanou ocelovou vložkou, ocelovým závěrem s povlakem DLC a zásobníkem na 15 nábojů.
 
 Oficiální stránky výrobce: [danieldefense.com](https://danieldefense.com)
+
+Má někdo původní Hudson H9, nebo už novou Daniel H9? Zajímá nás, jak se projevuje nízko položená osa hlavně, jak se střílí se spouští ve stylu 1911 a jestli váš starší kus netrápily problémy s díly.

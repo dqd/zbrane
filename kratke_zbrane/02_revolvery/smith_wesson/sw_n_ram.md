@@ -8,3 +8,5 @@ Model 22 je moderní verze armádního revolveru Model 1917 v ráži .45 ACP, na
 Model 629 je jeho nerezová verze, oblíbená pro lov s revolverem, Model 625 nerezový revolver .45 ACP na 6 nábojů ve sponách, rozšířený v revolverové praktické střelbě. Model 627 je nerezový revolver .357 Magnum, v novějších verzích s osmiranným válcem, Model 929 osmiranný sportovní revolver v ráži 9×19 s titanovým válcem a Model 327 z dílny Performance Center osmiranný .357 Magnum s rámem ze slitiny se skandiem a titanovým válcem, nabízený i jako krátký revolver pro nošení. Ráže .44 a .45 mají válec na 6 nábojů.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Který N-rám máte – Model 29 nebo 629 na lov, Model 625 na praktickou střelbu se sponami, nebo osmiranný 627 či 929? Napište, k čemu ho používáte a jak se s ním střílí.

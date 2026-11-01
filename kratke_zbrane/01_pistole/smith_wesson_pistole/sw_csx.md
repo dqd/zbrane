@@ -8,3 +8,5 @@ Pracuje s krátkým zákluzem hlavně a jejím sklápěním, závěr je ocelový
 Pistole měla oslovit střelce, kteří chtějí kovový rám a jednočinnou spoušť s krátkým chodem v rozměrech typických pro polymerové mikropistole. Zbraň s nábojem v komoře a nataženým kohoutem se nosí zajištěná manuální pojistkou, podobně jako u pistolí 1911. Ohlasy chválí především spoušť a ergonomii, za nevýhodu je naopak považována vyšší hmotnost a cena oproti polymerovým konkurentům.
 
 Oficiální stránky výrobce: [www.smith-wesson.com](https://www.smith-wesson.com)
+
+Láká vás kovový rám a spoušť SA v rozměrech mikrokompaktu? Pokud CSX nosíte, napište, jak se osvědčila při skrytém nošení, jak vnímáte vyšší hmotnost oproti polymerovým pistolím a jak jste si zvykli na nošení se zajištěným kohoutem.

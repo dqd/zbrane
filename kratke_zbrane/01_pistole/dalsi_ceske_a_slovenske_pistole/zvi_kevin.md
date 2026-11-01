@@ -8,3 +8,5 @@ Pistole pracuje na principu dynamického (neuzamčeného) závěru, jehož pohyb
 Základní ráží je 9 mm Browning krátký (.380 ACP), zásobník pojme podle provedení 6 až 9 nábojů; pro východoevropské trhy vznikla od roku 2007 verze pro náboj 9×18 Makarov (ZP06, Kevin M). Odvozeny byly také plynová a expanzní verze a verze pro náboj 9 mm P.A. Rubber. Ve Spojených státech pistoli od roku 2008 prodávala firma Magnum Research pod názvem Micro Desert Eagle (případně Micro Eagle) v mírně upraveném provedení. ZVI se dnes zaměřuje hlavně na výrobu středorážové munice.
 
 Oficiální stránky výrobce: [www.zvi.cz](https://www.zvi.cz)
+
+Nosí někdo z vás Kevina nebo Micro Desert Eagle jako záložní či kapesní zbraň? Zajímá nás, jak se střílí s tak malou pistolí s dvojčinnou spouští, jak se v praxi projevuje brzdění závěru plyny a jakou máte ráži.

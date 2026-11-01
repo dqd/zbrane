@@ -10,3 +10,5 @@ TT 9 v ráži 9×19 má zásobník na 16–17 nábojů, TT 40 v ráži .40 S&W n
 Novější ČZ ST 9 PV je naproti tomu celoocelová pistole se stejným principem uzamčení Browningova typu, spouští SA/DA a zásobníkem na 16 nábojů 9×19; ocelový rám ji činí těžší, ale klidnější při střelbě. Výrobce uvádí pistole TT 9 a TT 40 i jako služební zbraně pro bezpečnostní složky, v Česku jsou ale rozšířeny hlavně mezi civilními střelci jako levnější alternativa k produkci Uherského Brodu.
 
 Oficiální stránky výrobce: [luvo.cz](https://luvo.cz)
+
+Používáte strakonickou TT 9 nebo celoocelovou ST 9 PV? Napište, jak se osvědčily ve srovnání s pistolemi z Uherského Brodu a jestli někdo využívá modularitu a střílí s konverzí TT 22.
